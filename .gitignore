@@ -1,0 +1,6 @@
+# Memory and private session files
+memory/
+*.bak
+
+# OS files
+.DS_Store
