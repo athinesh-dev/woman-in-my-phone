@@ -2556,7 +2556,7 @@ I thought about Meera every day. Not in the dramatic, cinematic way. In the smal
 
 Where was she? Was the baby okay? Did the baby have my forehead? Was her husband still forcing her? Did she think about me? Did she miss the calls? Did she lie in bed at night and reach for her phone and almost call me and then put it down?
 
-I'll never know. Being ghosted doesn't give you answers. You get theories. And theories are just loneliness wearing a lab coat.
+I'll never know. I had theories. None of them helped.
 
 ---
 
@@ -5380,8 +5380,6 @@ Running because: the alternative was the couch.
 The running got me out of the house for forty minutes a day during which I could think about my breath instead of myself.
 
 That was enough. Some weeks that was the whole win.
-
-Boring competence is the texture of recovery.
 
 ---
 
