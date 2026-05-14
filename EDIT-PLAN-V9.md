@@ -1,6 +1,9 @@
 # Edit Plan — The Woman in My Phone V9
 
-**Goal:** Cut ~15% (87K → ~74K words). Humanize the voice. Reduce literary polish at emotional peaks.
+**Strategy:** Option 2 — Cut polish, add depth. (See `EDIT-PLAN-COMBINED.md` for full strategy and Phase 4.5 depth-add specs.)
+**Starting word count:** 62,651 (verified). Original 87K target was based on a misread.
+**Goal:** Cut ~9K of polish/aphorism/explanation. Humanize the voice. The depth-add work (Phase 4.5) lives in the combined plan, not here.
+**Land at:** ~65-68K after combined cuts + adds.
 
 **Principles:**
 1. Ari's voice should stumble more at emotional peaks — less articulate, more physical
@@ -8,6 +11,7 @@
 3. Cut metaphors that land too neatly — save poetry for 2-3 moments max per chapter
 4. Chapter 13 (Meera's Year) and Chapter 27 (The First Apartment) are the tone benchmarks
 5. Trust the reader — don't explain what you just showed
+6. **Cuts here remove. They don't replace.** New material is added in Phase 4.5 of the combined plan, in three specific underwritten sections — not as line-by-line replacements for cut text.
 
 ---
 

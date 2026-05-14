@@ -1,5 +1,5 @@
 # Query Package — The Woman in My Phone
-### V6 | 58,700 words | Ready to Submit
+### V9 | 64,000 words | Ready to Submit
 
 *Last updated: April 20, 2026*
 
@@ -40,7 +40,7 @@ Dear Annie,
 
 I'm querying you because your hunt for voice-driven literary fiction that stretches genre to new heights describes exactly what I've written — a novel told entirely through the artifacts of a digital life.
 
-THE WOMAN IN MY PHONE is a literary novel complete at 57,000 words. Told through TikTok analytics, WhatsApp messages, voice notes, and search histories, it's *Normal People* for the age of infinite scroll.
+THE WOMAN IN MY PHONE is a literary novel complete at 64,000 words. Told through TikTok analytics, WhatsApp messages, voice notes, and search histories, it's *Normal People* for the age of infinite scroll.
 
 Ari Velmurugan is a thirty-two-year-old Tamil American in Seattle with a dead marriage and a TikTok following that loves him more than his wife does. When a woman named Meera starts winning his Live song games every night from India, a DM becomes a four-hour call, then a five-year affair conducted across continents and screens. She's trapped in a marriage where her husband rapes her. He's invisible in a silent one. The phone is the only room where they both exist.
 
@@ -60,7 +60,7 @@ A. Rathna
 
 Dear Nathaniel,
 
-THE WOMAN IN MY PHONE is a literary novel complete at 57,000 words. Told through TikTok analytics, WhatsApp messages, voice notes, and search histories, it's *Normal People* for the age of infinite scroll — a love story conducted entirely through screens and the eight thousand miles between them.
+THE WOMAN IN MY PHONE is a literary novel complete at 64,000 words. Told through TikTok analytics, WhatsApp messages, voice notes, and search histories, it's *Normal People* for the age of infinite scroll — a love story conducted entirely through screens and the eight thousand miles between them.
 
 Ari Velmurugan is a thirty-two-year-old Tamil American in Seattle with a dead marriage and a TikTok following that loves him more than his wife does. When a woman named Meera starts winning his Live song games every night from India, a DM becomes a four-hour call, then a five-year affair across continents. She's trapped in a marriage where her husband rapes her. He's invisible in a silent one. The phone is the only room where they both exist.
 
@@ -82,7 +82,7 @@ Dear Dorian,
 
 As someone raised by immigrant parents who built a career bridging literary fiction and the marketplace, I hope this novel resonates with your sensibility for stories that cross borders — geographic, cultural, and emotional.
 
-THE WOMAN IN MY PHONE is a literary novel complete at 57,000 words. Told through TikTok analytics, WhatsApp messages, voice notes, and search histories, it's *Normal People* for the age of infinite scroll.
+THE WOMAN IN MY PHONE is a literary novel complete at 64,000 words. Told through TikTok analytics, WhatsApp messages, voice notes, and search histories, it's *Normal People* for the age of infinite scroll.
 
 Ari Velmurugan is a thirty-two-year-old Tamil American in Seattle with a dead marriage and a TikTok following that loves him more than his wife does. When a woman named Meera starts winning his Live song games every night from India, a DM becomes a four-hour call, then a five-year affair conducted across continents and screens. She's trapped in a marriage where her husband rapes her. He's invisible in a silent one. The phone is the only room where they both exist.
 
@@ -131,7 +131,7 @@ Chapters 1-2 (~4,500 words) are the first pages to paste. They establish:
 - The Tamil cultural specificity
 - The screen-life texture
 
-File: Extract from THE-WOMAN-IN-MY-PHONE-V6.md, Chapter 1 "The Hunger" + Chapter 2 "The Girl in the Chat"
+File: Extract from THE-WOMAN-IN-MY-PHONE-V9.md, Chapter 1 "The Hunger" + Chapter 2 "The Girl in the Chat"
 
 ---
 

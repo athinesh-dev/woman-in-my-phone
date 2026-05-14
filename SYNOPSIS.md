@@ -1,6 +1,6 @@
 # Synopsis — The Woman in My Phone
 ### by A. Rathna
-**Literary Fiction | 57,000 words | Complete**
+**Literary Fiction | 64,000 words | Complete**
 
 ---
 
@@ -26,7 +26,7 @@ Meera leaves Vikram — not for Ari, but for herself. She takes her daughter and
 
 Priya leaves too — or rather, they both finally say the words. One chapter is told entirely from Priya's perspective: the wife who knew. Not the details, but the shape of the absence. The cologne for "work trips." The whispering on the couch after midnight. She's not angry. She's been mourning a living husband for five years. Her final words to Ari: "That's all I ever wanted. For you to stop pretending."
 
-Ari is alone for the first time in his adult life. He learns the difference between lonely silence and solitary silence — one is a prison, the other a monastery. He turns forty in December. Meera texts "Happy birthday" at midnight her time. Priya texts nothing. He writes in his journal: *The man I was at thirty-two would not recognize the man I am at forty. And that's the whole point.*
+Ari is alone for the first time in his adult life. He learns the difference between lonely silence and solitary silence — one is a prison, the other a monastery. He turns forty in December. Meera texts "Happy birthday" at midnight her time. Priya texts nothing. He writes in his journal: *At forty, I'm full. Not because I got what I wanted. Because I stopped wanting it from other people.*
 
 In the final chapter, set in spring 2027, Ari still talks to Meera. Not daily. Not desperately. The way two people talk who've been through a war together and come out standing on opposite sides of an ocean. He loves her — from abundance, not scarcity. He doesn't need her to see him anymore. He sees himself. The phone sits on the counter, no longer the most important relationship in his life. He is, finally, the King — not because anyone crowned him, but because he learned to sit on the throne alone.
 

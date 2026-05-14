@@ -1,8 +1,11 @@
 # Combined Edit Plan — The Woman in My Phone
 
 **Source:** V9 manuscript edit plan + query package review + structural gap analysis
-**Goal:** Cut ~15% (87K → ~70-74K words). Humanize the voice. Fix query package inconsistencies. Ship a submission-ready manuscript + query package.
-**Total estimated time:** 15-18 hours across all phases
+**Strategy:** Option 2 — Cut polish, add depth.
+**Starting word count:** 62,651 (verified via `wc -w` on `THE-WOMAN-IN-MY-PHONE-V9.md`)
+**Goal:** Cut ~9K words of polish/aphorism/explanation. Add ~12-15K words of depth in three underwritten sections. Humanize the voice throughout. Land at ~65-68K. Fix query package inconsistencies. Ship a submission-ready manuscript + query package.
+**Why this strategy:** The query letter's 85K and the structure target of 75K are both wrong — the manuscript is currently 62.6K. Cutting alone lands at ~53K (novella territory, narrows agent pool). Editing without cutting leaves bloat. Cutting + adding depth uses freed space to deepen scenes that are currently summarized.
+**Total estimated time:** 25-30 hours across all phases (the depth-add phase is the new bulk of the work)
 
 ---
 
@@ -12,34 +15,38 @@ These are independent of the manuscript edits and can be submitted immediately i
 
 ### 1. Lock the word count
 
-The query letter says 85,000. The query package says 58,700. The synopsis says 57,000. The structure targets 75,000. An agent who reads all three will wonder which draft you're actually sending.
+The query letter says 85,000. The query package says 58,700. The synopsis says 57,000. The structure targets 75,000. **The actual current count is 62,651.** An agent who reads all three documents will wonder which draft you're actually sending — and none of the existing numbers are correct.
 
-**Action:** Pick the number that matches the manuscript you'd send if someone asked tomorrow. Update every file to that one number:
+**Action:** Don't pick a number yet. Under Option 2, the final manuscript will land at ~65-68K after cuts + depth-adds. Hold on updating word counts in query files until Phase 5 (post-edit reconciliation), when the actual final count is known. Pitching a word count you haven't written is the bigger risk than leaving the files temporarily inconsistent.
 
-| File | Current | Fix |
+**Interim action (only if querying the current draft as-is, before edits):** Update all four locations to **62,651** (round to **63,000**):
+
+| File | Current | Interim Fix |
 |---|---|---|
-| `QUERY-LETTER.md` | 85,000 | Update to actual count |
-| `QUERY-PACKAGE.md` (header) | 58,700 | Same |
-| `QUERY-PACKAGE.md` (Version A, B, C) | 57,000 | Same |
-| `SYNOPSIS.md` (header) | 57,000 | Same |
+| `QUERY-LETTER.md` | 85,000 | 63,000 |
+| `QUERY-PACKAGE.md` (header) | 58,700 | 63,000 |
+| `QUERY-PACKAGE.md` (Version A, B, C) | 57,000 | 63,000 |
+| `SYNOPSIS.md` (header) | 57,000 | 63,000 |
 
-If the manuscript is currently ~87K and you plan to cut to ~74K — don't query until the cut is done, or query the 87K version as-is with the correct number. Never pitch a word count you haven't written yet.
+If you're not querying immediately, skip this and update once at Phase 5 with the post-edit count.
 
-### 2. Trim the comp list from 6 to 3
+### 2. Trim the comp list from 6 to 2
 
-Six comps dilutes the signal. Agents want 2-3 that say "this is my shelf space."
+Six comps dilutes the signal. Two strong comps is better than three forced ones.
 
 **Keep:**
 - *Normal People* (Rooney) — intimacy through digital communication. Direct structural parallel.
 - *Fleishman Is in Trouble* (Brodesser-Akner) — unreliable male narrator, marriage dissolution from inside. Exact tonal match.
-- *Open Water* (Azumah Nelson) — long-distance love, cultural specificity, the weight of almost. Emotional register match.
 
 **Cut:**
-- *A Little Life* — wrong scale. 720 pages of relentless trauma vs. a 74K-word reckoning. Agents will think you're overscoping.
-- *Exciting Times* — too niche, the connection is thin (digital-age love triangle is a surface-level match).
-- *Such a Fun Age* — the "you're the villain" parallel is real but the books are tonally different enough that it confuses more than it clarifies.
+- *Open Water* — debut from 2021 without massive commercial success. The "long-distance love" parallel is surface-level.
+- *A Little Life* — wrong scale. 720 pages of relentless trauma vs. a 74K-word reckoning.
+- *Exciting Times* — too niche, the connection is thin.
+- *Such a Fun Age* — the "you're the villain" parallel is real but tonally different enough to confuse.
 
-**Action:** In `QUERY-LETTER.md`, cut the sentence to: "sits alongside *Normal People*, *Fleishman Is in Trouble*, and *Open Water*." In `QUERY-PACKAGE.md`, remove the three cut titles from the comparable titles table.
+**Optional third (if an agent or submission form expects 3):** *Conversations with Friends* (Rooney) — literally about an affair told through digital communication, both parties self-aware and articulate, and it sold. Doubling up on Rooney is a risk, but the parallel is exact.
+
+**Action:** In `QUERY-LETTER.md`, cut the sentence to: "sits alongside *Normal People* and *Fleishman Is in Trouble*." In `QUERY-PACKAGE.md`, remove the four cut titles from the comparable titles table.
 
 ### 3. Soften "based on real events"
 
@@ -140,6 +147,10 @@ Every time a scene or dialogue exchange makes the point and is followed by a par
 ---
 
 ## Phase 4: Chapter-Level Edits (8-10 hours)
+
+**Important — Phase 3/4 overlap:** If Phase 3 (global sweep) is done thoroughly, many of the line-level cuts flagged below will already be gone. Before executing a chapter's edits, re-read the chapter post-sweep. Cross off any flagged cuts that the global pass already handled. Don't cut twice — and don't waste time debating a line that's already deleted.
+
+**Important — Option 2 framing:** The cuts below remove polish and over-explanation. They don't replace anything. The replacement work — adding depth — happens in Phase 4.5 below. Execute Phase 4 cuts first; the freed space funds Phase 4.5.
 
 Execute the V9 edit plan chapter by chapter. The plan is thorough and correct — follow it as written, with these additions and amendments.
 
@@ -307,11 +318,65 @@ Execute the V9 edit plan chapter by chapter. The plan is thorough and correct �
 
 ---
 
-## Phase 5: Post-Edit Reconciliation (1 hour)
+## Phase 4.5: Add Depth (10-14 hours, the new center of gravity)
+
+This is where Option 2 lives. Phase 4 cuts ~9K words of polish. This phase adds ~12-15K words of new depth in three underwritten sections. Net change: +3-6K. Land at ~65-68K.
+
+**Rule for new material:** No new aphorisms. No new "not X, not Y, Z" constructions. No new direct address. New material follows the Ch 13 / Ch 27 standard — physical, specific, scenic, no commentary. If you find yourself writing a line that explains the meaning of what just happened, delete it.
+
+### 13. Deepen Ari's silence period (Chapter 11) — Add ~3-4K words
+
+The chapter currently propels through panic and Google searches. The seven days of silence pass quickly because the manuscript skims a surface that should drag.
+
+**What to add (specific, scenic, no analysis):**
+- A workday Ari can't get through. Specific meeting. Specific moment of dissociation. The Slack messages he doesn't answer. A colleague noticing.
+- A meal he doesn't eat. Open fridge, close fridge. Repeat. The granular logistics of forgetting to feed yourself.
+- Night three or four. The hour when he stops checking the phone and starts checking again. The texture of compulsion as physical habit.
+- One concrete scene with someone external — Sameer, his mother, a stranger at a coffee shop — where he tries to act normal and the seam shows.
+
+**What NOT to add:** Reflective passages about what the silence meant. Analysis of his behavior. Theories about her absence. Save all that for the existing material — the chapter already has enough internal monologue. Add behavior, not interpretation.
+
+### 14. Deepen the Priya marriage decay (Chapters 24-25 setup) — Add ~4-5K words
+
+The cologne reveal lands hard. The years of slow drift before it are mostly summarized. To make Priya's "Okay" hit at maximum weight, the reader needs to feel the marriage as it was — not retrospective glosses about it.
+
+**What to add:**
+- One specific evening from year 3-4 of the marriage. Pre-affair. The kind of normal night that, in hindsight, was already over. Cooking, eating, screen time, sleep. Without commentary.
+- One small fight that wasn't a fight. A misalignment that neither names. The accumulated tax of unaddressed things.
+- One Sunday they spent "together" in different rooms. Specific furniture. Specific noises. The particular silence of two people who've stopped translating for each other.
+- One moment of genuine tenderness — late, exhausted, brief. The kind that made staying possible. Without it, the marriage reads as already-dead, which makes the cologne reveal redundant.
+
+**Placement:** New material can go inside Ch 24 (currently focused on the cologne discovery and aftermath) as flashback inserts, OR as a new short chapter before Ch 24. Decide based on whether it disrupts the cologne pacing.
+
+**What NOT to add:** A redemption arc for the marriage. Anything that explains why Ari was unhappy. The reader needs to see the marriage; they don't need a thesis on it.
+
+### 15. Deepen the post-jail / pre-Priya gap (Chapters 23-24 transition) — Add ~5-6K words
+
+The plan currently asks you to TRIM the jail monologue. That's correct. But the gap between "empty house" and "Priya conversation" is the most underwritten passage in the book — the man between collapse and reckoning. This is where the novel's central transformation actually happens, and it's currently a few paragraphs.
+
+**What to add (this is the most important addition in the whole edit):**
+- The first 72 hours back in the house. Specific. Slept on couch / didn't sleep. Showered / didn't shower. Ate / didn't eat. The body's logistics of someone who has just lost two women and a self-image in the same week.
+- One scene with the therapist that isn't the "performing love" line. A session before that one. Maybe a session where Ari is still defending himself. Show the work the line lands on top of.
+- One scene of physical labor or routine — running, cleaning, driving, cooking — where nothing important happens internally. The reader needs to see Ari being a person again, not just narrating his collapse. Boring competence is the texture of recovery.
+- A moment of contact with someone who doesn't know what happened. A grocery clerk. A Lyft driver. The strangeness of the world continuing while you've stopped.
+- One phone call he picks up and one he doesn't.
+
+**What NOT to add:** Insight. Realizations. Reckoning monologues. The reckoning belongs to Ch 29. This phase is the in-between — the body grieving while the mind hasn't caught up. If you find yourself writing wisdom, you've drifted into the wrong chapter.
+
+---
+
+## Phase 5: Post-Edit Reconciliation (1-2 hours)
 
 ### 16. Re-count the manuscript word count
 
-The target is ~74K but you may land closer to 70K once the global patterns (Phase 3) and chapter trims (Phase 4) compound. Both numbers are fine for literary fiction.
+Starting count: 62,651.
+Phase 3 + Phase 4 cuts: ~9K removed.
+Phase 4.5 adds: ~12-15K added.
+**Expected final count: 65-68K.**
+
+**Below 65K?** Phase 4.5 underdelivered. Identify the weakest of the three add zones and deepen further before submitting.
+
+**Above 70K?** Phase 4.5 overdelivered. Check the new material for the patterns Phase 3 was supposed to kill — they often sneak back in when writing fresh.
 
 ### 17. Update the query package to match
 
