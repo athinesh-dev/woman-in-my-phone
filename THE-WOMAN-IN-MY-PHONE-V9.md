@@ -260,7 +260,7 @@ One woman in this bed who wouldn't look at me.
 
 I should have known right then.
 
-When someone hears what you hear — really hears it, the melody curling before the drop, the lyric breaking at exactly the right word — that's not a stranger.
+When someone hears what you hear — really hears it, the melody curling before the drop, the lyric breaking at exactly the right word — that's not a stranger. That's a mirror.
 
 ---
 
@@ -1160,6 +1160,8 @@ I booked the flight thirty minutes after hearing that voice note.
 
 Not a week later. Not after thinking about it. Not after weighing the consequences, the cost, the risk, the lies I'd have to tell Priya. Thirty minutes. That's how long it took to find a flight from Seattle to India, put it on my credit card, and close the laptop.
 
+Some decisions aren't decisions. They're reflexes. Your body moves before your brain catches up, and by the time reason shows up to negotiate, you're already at the gate.
+
 ---
 
 **Flight Confirmation — Alaska Airlines / Air India**
@@ -1597,6 +1599,8 @@ Then she undressed me. Her hands shaking. Not from fear. From want. She'd watche
 ---
 
 We made love.
+
+Not had sex. Not fucked. Made love.
 
 She was nervous. I was nervous. Neither of us had been with anyone new in years. — her because her husband was the only body she knew, me because Priya had made intimacy impossible.
 
@@ -5301,6 +5305,8 @@ I didn't shower for four days the first week. Then I did.
 
 I ate. Granola bars from a box on top of the fridge. Eggs sometimes. A frozen pizza my older daughter must have left in the freezer. The first thing I cooked from scratch was a pot of dal — water, dal, turmeric, ginger, salt. I ate it standing at the stove. I ate the next bowl thirty minutes later, also standing at the stove. I made a second pot the next day.
 
+The dal was the first thing I'd done with my hands that produced an outcome other than damage. I should have noticed that. I didn't.
+
 ---
 
 **Therapist Session Notes — Anna Reyes, LMHC**
@@ -5372,6 +5378,8 @@ I started running in the second week of September. Not far. Down the street, aro
 Running because: the alternative was the couch.
 
 The running got me out of the house for forty minutes a day during which I could think about my breath instead of myself.
+
+That was enough. Some weeks that was the whole win.
 
 ---
 
