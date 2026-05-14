@@ -4889,8 +4889,6 @@ For two weeks I didn't move from the couch except to refill the same cup with co
 
 The girls noticed. My older daughter — eleven now, old enough to clock that something was off — asked me twice if I was okay and I said yes the way you say yes when the truth would require a different language. The second time she asked, she was holding a cereal bowl. She'd poured cereal for herself because nobody had made breakfast. I said yes. She said *okay* in the voice she used when she'd decided not to push. She took the bowl to her room.
 
-That was the worst moment of those two weeks. Worse than the bathroom floor message. Because the bathroom floor was a thing that had happened to Meera. The cereal bowl was a thing my daughter was doing to survive me.
-
 I should have known then. I didn't.
 
 ---
