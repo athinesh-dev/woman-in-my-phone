@@ -2441,15 +2441,11 @@ Daniel didn't know anything. He was being polite. The kind of polite a manager l
 
 I didn't walk through it. I typed *all good* and meant *please don't ask again* and Daniel, who is a good manager, heard the second sentence and respected it.
 
-That's how a marriage ends in a workplace too. Quietly. With courtesies no one fights against.
-
 ---
 
 I forgot to eat for two days.
 
-This wasn't dramatic. It was administrative. I'd open the fridge at 7 PM and look at what was in there — leftovers from a dinner Priya had cooked for herself, eggs, half a tomato, a Tupperware of sambar with a film of oil on top — and close the fridge and walk to the couch. Not because I'd decided not to eat. Because the sequence between *open fridge* and *eat food* required a step I couldn't locate. The step where you decide what you want.
-
-The wanting was the broken part.
+I'd open the fridge at 7 PM and look at what was in there — leftovers from a dinner Priya had cooked for herself, eggs, half a tomato, a Tupperware of sambar with a film of oil on top — and close the fridge and walk to the couch.
 
 I'd open the fridge at 11 PM. Same view. Close it.
 
@@ -2473,7 +2469,7 @@ On day three I ate a bowl of cereal at 4 AM standing at the kitchen counter. Che
 
 ---
 
-Five hundred steps in a day is the number a person takes when they go from couch to bathroom to kitchen and back. That's it. That's the entire ambit of a life. I looked at the chart at the end of the month and felt nothing about it. Like looking at someone else's medical record.
+Five hundred steps. Couch to bathroom to kitchen and back. I looked at the chart at the end of the month and felt nothing about it.
 
 ---
 
@@ -4440,19 +4436,17 @@ I closed the calculator. Opened my notes. Found the entry from September 2019. T
 
 The math had never been mine. The math had never been mine and I had known it. The math had been on my phone in a calculator app for four years and I had simply not opened the app.
 
-I put the phone face down on the kitchen counter. The counter that Priya had wiped clean that morning, that had a faint streak of dish soap residue in the corner I'd noticed and then unnoticed. I looked at the streak for a long time. I think I was trying to focus on something that was not the inside of my own head, because the inside of my head had become a hallway with all the doors blowing open at once.
+I put the phone face down on the counter. There was a streak of dish soap on the corner. Priya had wiped the counter that morning. I looked at the streak.
 
-The forehead. Meera had told me the baby had my forehead. The forehead was the thing I'd carried for four years. The forehead had been the talisman.
+The forehead. Meera had told me the baby had my forehead.
 
-A baby has the forehead of any human being who has a forehead. A baby's forehead is a forehead.
+A baby has the forehead of any human being who has a forehead.
 
-I sat on the kitchen floor. Not for any reason. The floor was where I ended up. The tile was cold through my jeans and I was thinking, in a flat clinical voice that did not feel like mine: *you knew. you knew. you knew. you have known for four years and you decided not to know because the not-knowing was the only place a future was still possible.*
+I sat on the floor. The tile was cold through my jeans. *You knew. You knew. You knew.*
 
-That was the moment the lie ended. Not when she texted *I think I always knew*. When I opened the calculator.
+I sat there for an hour. I didn't cry. I kept waiting for it. It didn't come.
 
-I sat on the floor for an hour. I didn't cry. I think I was waiting to cry. The crying didn't come. What came instead was a flat, terrible quiet, the quiet of a man whose central organizing fiction had just been priced out and was being repossessed.
-
-When I stood up, I was a different man. Not better. The man I'd been was the man who'd believed in the forehead. The man I was now was the man who'd done the math.
+When I stood up my legs were stiff and I had to grab the counter.
 
 ---
 
@@ -4895,17 +4889,15 @@ For two weeks I didn't move from the couch except to refill the same cup with co
 
 The girls noticed. My older daughter — eleven now, old enough to clock that something was off — asked me twice if I was okay and I said yes the way you say yes when the truth would require a different language. The second time she asked, she was holding a cereal bowl. She'd poured cereal for herself because nobody had made breakfast. I said yes. She said *okay* in the voice she used when she'd decided not to push. She took the bowl to her room.
 
-That was the worst moment of those two weeks. Worse than the bathroom floor message. Because the bathroom floor was a thing that had happened to Meera. The cereal bowl was a thing my daughter was doing to survive me.
-
 I should have known then. I didn't.
 
 ---
 
 I went back to work in mid-June. Not because I was ready. Because Daniel sent a polite but firm email — *we need to talk about timeline, can you come in this week.* I went in. I performed. I sat in meetings. I gave updates that were ninety percent true. Nobody asked about the dark circles. Nobody could have known.
 
-I'd come home and check Meera's WhatsApp last-seen timestamp. *Last seen yesterday at 23:47.* That's how I knew she was alive. Twenty-three forty-seven. Twenty-two thirty-three. Twenty-one twelve. The numbers were a heartbeat.
+I'd come home and check Meera's WhatsApp last-seen timestamp. *Last seen yesterday at 23:47.* That's how I knew she was alive. Twenty-three forty-seven. Twenty-two thirty-three. Twenty-one twelve.
 
-She didn't message. I didn't either. The rule we'd never stated was that I'd given up the right to be the one who reached out. After a voice note like the one I'd sent, you don't reach. You wait. And waiting was the most active thing I did all summer.
+She didn't message. I didn't either. After a voice note like the one I'd sent, you don't reach. You wait.
 
 ---
 
@@ -4913,13 +4905,11 @@ The fights started small.
 
 Priya asked if I'd taken out the recycling. I said I'd do it. She said she'd already done it because I hadn't. I said I would have. She said *yeah*. The whole exchange was eighteen seconds. I went to the bathroom and sat on the toilet seat lid for twenty minutes because I couldn't make myself stand back up.
 
-A week later, the dishwasher. She'd loaded it; I hadn't started it before bed. She started it the next morning and her tone, when she said *the dishwasher needs to be run before we go to sleep,* had something in it — not anger, just an exhaustion so old it had compressed into a kind of professional courtesy. The way you correct a coworker. I said *sorry, I'll do it next time*. I never did it next time. The dishwasher became another evidence locker.
+A week later, the dishwasher. She'd loaded it; I hadn't started it before bed. She started it the next morning and her tone, when she said *the dishwasher needs to be run before we go to sleep,* had something in it — not anger. The way you correct a coworker. I said *sorry, I'll do it next time*. I never did it next time.
 
-By July I was picking the fights. Not consciously. The body was. I'd hear myself ask why she hadn't told me about a school form, why the car needed an oil change again, why her mother had called me directly instead of calling her. The questions were never about the questions. The questions were *why aren't you talking to me. Why won't you look at me. Why am I dying in here.*
+By July I was picking the fights. Not consciously. The body was. I'd hear myself ask why she hadn't told me about a school form, why the car needed an oil change again, why her mother had called me directly instead of calling her.
 
-She didn't take the bait. She'd say *okay,* or *I'll handle it,* or *you can ask her yourself,* and walk to a different room. She'd become a master at leaving rooms without making it look like leaving.
-
-I wasn't a master at anything. I was a man with eleven hours of phone time a day, four hours of sleep, an unanswered WhatsApp thread on one side and a wife who walked out of rooms on the other.
+She didn't take the bait. She'd say *okay,* or *I'll handle it,* or *you can ask her yourself,* and walk to a different room.
 
 ---
 
@@ -5289,7 +5279,7 @@ The wrist-grab was a Friday. Sameer drove me home Sunday night.
 
 Monday I didn't go to work. Tuesday I didn't either. Wednesday I sat at the kitchen counter and opened my laptop and looked at 327 unread emails and closed the laptop and went back to the couch.
 
-This is the part I want to be honest about: nothing important happened for a long time.
+Nothing important happened for a long time.
 
 ---
 
@@ -5307,11 +5297,9 @@ This is the part I want to be honest about: nothing important happened for a lon
 
 I lay on the couch for hours at a time without sleeping. The phone was facedown on the coffee table. The TV was on but on something I wasn't watching — the cooking channel, mostly, because the cooking channel doesn't have plot. Someone in a clean kitchen explained how to roast a chicken. Then how to make a vinaigrette. Then how to braise short ribs. The shows ran into each other in a continuous instruction I had no intention of following.
 
-I didn't shower for four days the first week. Then I did, and afterward I felt better the way you feel better after taking a shower, which is not the same as feeling good. The bar had moved. *Better* now meant *I am clean and the house is not on fire and I have not done anything irreversible in the last twelve hours.* I'd take it.
+I didn't shower for four days the first week. Then I did.
 
-I ate. Granola bars from a box on top of the fridge. Eggs sometimes. A frozen pizza my older daughter must have left in the freezer. The first thing I cooked from scratch was a pot of dal because dal was the only meal I knew without having to think — water, dal, turmeric, ginger, salt. I ate it standing at the stove. I ate the next bowl thirty minutes later, also standing at the stove. I made a second pot the next day.
-
-The dal was the first thing I'd done with my hands that produced an outcome other than damage. I should have noticed that. I didn't.
+I ate. Granola bars from a box on top of the fridge. Eggs sometimes. A frozen pizza my older daughter must have left in the freezer. The first thing I cooked from scratch was a pot of dal — water, dal, turmeric, ginger, salt. I ate it standing at the stove. I ate the next bowl thirty minutes later, also standing at the stove. I made a second pot the next day.
 
 ---
 
@@ -5332,7 +5320,7 @@ Anna didn't ask about it. She let it sit. She just said *we'll come back to it,*
 
 The session after that, I tried again. Wrote three sentences. Cried for forty minutes. Stopped writing. Brought the three sentences in. She read them and said *good* and we kept going.
 
-It took five sessions to fill a single page. Five weeks. The page is in a drawer in my apartment now. I haven't read it again. I don't need to. The point wasn't the page. The point was sitting at a table with a pen and a piece of paper for forty minutes a week, doing one boring small thing, the way a man recovering from surgery does physical therapy — not because the exercise is the cure but because doing the exercise is the cure.
+It took five sessions to fill a single page. Five weeks. The page is in a drawer in my apartment now. I haven't read it again.
 
 ---
 
@@ -5346,11 +5334,9 @@ The cashier was a woman in her fifties with tired eyes and a knee brace. She ran
 
 "You too."
 
-That was the entire interaction with another human being that day. Eight words. I drove home with the bag in the passenger seat. I unpacked the groceries. I put each item where it went. I rinsed the cilantro and patted it dry and laid it on a paper towel like Priya used to. I cooked dal again because dal was still the only meal I trusted myself with.
+I drove home with the bag in the passenger seat. I unpacked the groceries. I put each item where it went. I rinsed the cilantro and patted it dry and laid it on a paper towel like Priya used to. I cooked dal again.
 
-I sat at the kitchen table to eat it. Not standing. The table. With a placemat I found in the drawer, because a placemat was a structure and Anna had said something about structures.
-
-I didn't feel good. I felt like a man eating dal at a table with a placemat at 6:47 PM on a Wednesday in September. Which was not nothing.
+I sat at the kitchen table to eat it. The table. Not standing. With a placemat I found in the drawer, because Anna had said something about structures.
 
 ---
 
@@ -5379,17 +5365,13 @@ At the end he said *you don't have to talk about it, I just wanted to know you p
 
 I thought about Sameer's dad for the rest of the night. Not Meera. Not Priya. A man I'd met twice in fifteen years, lying in a hospital in Chennai, doing PT on a left arm that didn't want to cooperate.
 
-It was the first time in eight months I'd thought about another person's pain for more than five seconds.
-
 ---
 
 I started running in the second week of September. Not far. Down the street, around the loop, back. Twelve minutes the first day. Fifteen the second. Twenty by the end of the week.
 
 Running because: the alternative was the couch.
 
-The running didn't fix anything. It didn't make me a better person. It didn't undo the wrist-grab or the voice note or the years of absence Priya was about to walk away from. All it did was get me out of the house for forty minutes a day during which I could think about my breath instead of myself.
-
-That was enough. Some weeks that was the whole win.
+The running got me out of the house for forty minutes a day during which I could think about my breath instead of myself.
 
 ---
 
@@ -5412,11 +5394,9 @@ That was enough. Some weeks that was the whole win.
 
 I wrote sentences I didn't send for weeks. Beginnings of texts. Beginnings of emails. The first three words of a voice note I deleted before recording.
 
-The not-sending was the work. The man who sent the August voice note was the man who couldn't tolerate not being heard. The man who didn't send the October drafts was a different man — barely different, an inch different, but the inch mattered. He was learning that the absence of his voice was sometimes the gift.
-
 Anna noticed in session 8. She said: *Huh.* And then nothing for a long time. And then: *You didn't send any of them.* That was all. She wrote something down and we moved on. I went home and ate dal at the table.
 
-I wrote a lot of things down that month. The notebook lived next to the dal pot. The dal pot lived on the stove. The stove was in a kitchen in a house where, I didn't yet know, a woman was preparing to ask me to leave.
+I didn't know yet that a woman was preparing to ask me to leave.
 
 ---
 
@@ -5463,7 +5443,7 @@ But she'd known something was wrong long before the cologne. Years before.
 
 A Sunday in October 2016. They'd been married five years. The girls were small — Anika was four, Nila was eighteen months. Ari was on the couch with his laptop. Priya was in the kitchen making rasam. The girls were in the playroom watching something with too much music.
 
-She walked out to ask him a question. *Did you renew the car tabs?* Something normal. The kind of question that, in a working marriage, opens a thirty-second exchange — *yes; oh good; need anything from Trader Joe's; sure, paneer if they have it.* The two-sentence currency of a household.
+She walked out to ask him a question. *Did you renew the car tabs?* Something normal.
 
 She stood in the doorway. He didn't look up. She said his name. He said *yeah,* without lifting his eyes. She asked the question. He typed something on his keyboard and said *yeah it's done.* She waited a beat to see if he'd ask anything back. He didn't. She went back to the kitchen.
 
@@ -5479,8 +5459,6 @@ Sundays where they sat in the same room for four hours and exchanged eight sente
 
 Sundays where the girls would do something funny and they'd both laugh and for a half-second the marriage would feel intact, and then the girls would go back to their show and the half-second would expire and they'd retreat into their separate phones, separate laptops, separate rooms inside the same house.
 
-The marriage didn't fail in 2018 when Ari met Meera. It had been failing in two-percent increments since 2014. By 2018 it was running on fumes. Meera didn't break the marriage. She just made the broken thing impossible to ignore.
-
 ---
 
 There was one moment of tenderness Priya kept thinking about for years afterward.
@@ -5491,11 +5469,9 @@ Ari woke up. She didn't ask him to. He just appeared in the doorway in his t-shi
 
 It didn't come back. She slept for nine hours.
 
-She kept that night the way some people keep a photograph. She'd take it out, on hard nights, and turn it over in her mind. *He did this. He's capable of this. The man who can sit on a bathroom floor at 3 AM holding hair is the man I married. He's still in there.* For years that night was her evidence.
+She kept that night the way some people keep a photograph. She'd take it out, on hard nights, and turn it over in her mind. *He did this. He's capable of this. He's still in there.* For years that night was her evidence.
 
-By 2019 the evidence was the only thing she had left. By 2021 even the evidence felt like archaeology — proof that something had once been here, dug up from a layer she could no longer touch.
-
-By 2023 she stopped taking the photograph out at all. It hurt more than it helped.
+By 2023 she'd stopped taking it out. It hurt more than it helped.
 
 ---
 
