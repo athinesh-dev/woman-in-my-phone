@@ -1069,17 +1069,13 @@ Most nights, it would turn. A look. A word. The shift in her breathing that I'd 
 
 ---
 
-She wished I was there. I wished she was here. And eight thousand miles of ocean and air and border and culture and marriage and fear and guilt and God sat between us like a wall we couldn't climb.
+She wished I was there. I wished she was here.
 
-So we did what we could. We loved each other through screens. We healed each other with voices. We came together across thirteen time zones and pretended, no, believed, that the pixels were skin and the speakers were breath and the distance was a temporary problem that love would eventually solve.
-
-It didn't solve it. Love never solves geography. But it made the geography survivable.
-
-Every morning, after I'd hung up, after she'd gone back to whatever her husband demanded and I'd gone back to whatever silence Priya offered, I'd lie in bed and stare at the ceiling and think:
+Every morning, after I'd hung up, I'd lie in bed and stare at the ceiling and think:
 
 *I am living two lives. One where I'm invisible. And one where I'm the only thing she sees.*
 
-The invisible one pays the mortgage. But the other one, the one on the phone at 2 AM, that one is real. That one breathes.
+The invisible one pays the mortgage. But the other one, the one on the phone at 2 AM, that one is real.
 
 ---
 
@@ -1104,13 +1100,9 @@ We were both liars. Just different kinds.
 
 The cruelest part wasn't the distance. The cruelest part was the contrast.
 
-Every night, Meera would tell me about her husband. The forced sex. The indifference. He'd finish and roll over without a word, like she was a task he'd completed. A chore. A thing.
+Every night, Meera would tell me about her husband. The forced sex. The indifference. He'd finish and roll over without a word, like she was a task he'd completed.
 
 And I'd hold her through the phone, make her feel beautiful, make her body hers again, and then hang up. And walk to my bedroom. And lie down next to a woman who treated me with the same indifference Meera's husband showed after sex. Not violent. Just... absent.
-
-She was drowning in too much unwanted touch. I was dying from none.
-
-We found each other in the middle. Two people perfectly designed to heal each other's specific wound. The man who was desperate to give found the woman who was desperate to receive. The woman who needed tenderness found the man who had nothing but tenderness to offer.
 
 It was beautiful. It was unsustainable. And it was already more real than anything either of us had known.
 
@@ -1279,15 +1271,11 @@ I crossed the room. I held her.
 
 ---
 
-Not a hug. Not the polite kind where you pat someone's back and step away. I HELD her. Arms around her waist, pulling her in, her face against my chest, my chin on top of her head. The way you hold someone when holding them is the only thing keeping both of you upright.
-
-She melted.
+Not a hug. The way you hold someone when holding them is the only thing keeping both of you upright.
 
 She was shaking.
 
 I kissed her neck. Softly. Just below her ear. The spot I'd talked about in hundreds of video calls. The spot I'd described touching while she came from my words alone. And now my actual lips were on her actual skin, and the reality of it was so much bigger than the fantasy that we both started crying.
-
-She melted in my arms.
 
 Seven months of screens dissolved in a single embrace.
 
@@ -1346,9 +1334,7 @@ She came, and I held her, and she cried into my chest, and I didn't say a word. 
 
 Day one ended with her asleep on my chest. Still clothed. Still crying, even in sleep, small involuntary tears that leaked from the corners of her closed eyes like her body was releasing poison. I didn't sleep. I just held her and listened to her breathe and thought:
 
-*I flew eight thousand miles for this. For a woman asleep on my chest, crying tears of relief. And I would fly twelve thousand more.*
-
-Day two and three... that's when she opened the rest of the doors. But that's the next chapter.
+*I flew eight thousand miles for this. And I would fly twelve thousand more.*
 
 ---
 
@@ -1372,27 +1358,13 @@ Fare: ₹387
 
 Forty-seven minutes in the back of an Uber that smelled like incense and old upholstery, and I almost asked the driver to turn around three times.
 
-Not because I didn't want to see her. Because I wanted it too much. Seven months of wanting compressed into a forty-seven-minute car ride through a city I'd never seen, and my body couldn't decide if it was excited or terrified, so it settled on both. My leg was bouncing. My hands were wet. I was wearing the shirt I'd tried on four times at home and the cologne I'd bought specifically for this trip, which now, in the back of an Indian Uber with the windows down and the heat pressing in, seemed like the most ridiculous purchase of my life.
-
-The driver was playing A.R. Rahman. Of course he was. The universe has a sick sense of humor. "Tere Bina" from Guru, the exact kind of sweeping romantic melody that would score the montage version of what I was doing. Man flies across ocean for woman. Strings swell. Audience cries.
-
-In the actual version, the man is sweating through his good shirt and Googling "how to stop hands from shaking" at a red light.
-
----
-
-The city hit me like a wall.
-
-Not the heat, although that too. The density. The noise. The specific chaos of an Indian city that Americans can't understand until they're inside it. Horns that aren't angry, just conversational. Auto-rickshaws cutting across three lanes like lane markings are decorative suggestions. A cow standing in the middle of a roundabout with the calm authority of a traffic cop who's given up.
-
-I'd grown up in Pondicherry. I knew India. But I'd been in Seattle for fifteen years, and fifteen years of traffic lights and right-of-way and people apologizing for standing too close had reprogrammed my nervous system. Every near-miss made me grab the door handle. The driver noticed.
+Not because I didn't want to see her. Because I wanted it too much. My leg was bouncing. My hands were wet. The driver was playing A.R. Rahman — "Tere Bina" from Guru — and outside, a cow stood in the middle of a roundabout with the calm authority of a traffic cop who'd given up.
 
 "First time, sir?"
 
 "No. I grew up here. Just been away."
 
 He grinned in the rearview mirror. "India doesn't wait for you to come back, sir. She just keeps going."
-
-Fair enough.
 
 ---
 
@@ -4456,13 +4428,41 @@ She confirmed it. Quietly. Almost as an afterthought.
 
 ---
 
+I put the phone down. Then I picked it up again, opened my photos, and scrolled.
+
+I had a folder. I'd never named it. iOS had named it for me — *Recent.* But inside the Recents was a buried sub-album I'd built over four years, every photo Meera had ever sent me of the baby. The baby I'd called my maybe-daughter. The baby I'd sent ultrasound images of to my own contacts under the contact name *medical, do not delete.* The baby whose first laugh I'd heard through a crackling 3G connection at 2 AM Seattle time and who I'd told my therapist about, when I finally got a therapist, before I told her about Meera.
+
+The first ultrasound was dated. December 14, 2019. Twelve weeks. The next photo, four months later, was Nila in a pink swaddle. April 2020. I scrolled and scrolled. Each photo was a stop on a calendar I'd never made explicit.
+
+I opened the calculator app. I had not opened the calculator app in months. December 14 minus twelve weeks. The pregnancy had started in late September 2019.
+
+I closed the calculator. Opened my notes. Found the entry from September 2019. The flight to India had been booked for the second crossing — except the second crossing happened in April 2022. Not 2019. In September 2019 I had not been in India. In September 2019 I had been in Seattle on a couch. Had been in Seattle for fourteen months by then. Had not touched her since the first crossing in March 2019, which was eight months before conception.
+
+The math had never been mine. The math had never been mine and I had known it. The math had been on my phone in a calculator app for four years and I had simply not opened the app.
+
+I put the phone face down on the kitchen counter. The counter that Priya had wiped clean that morning, that had a faint streak of dish soap residue in the corner I'd noticed and then unnoticed. I looked at the streak for a long time. I think I was trying to focus on something that was not the inside of my own head, because the inside of my head had become a hallway with all the doors blowing open at once.
+
+The forehead. Meera had told me the baby had my forehead. The forehead was the thing I'd carried for four years. The forehead had been the talisman.
+
+A baby has the forehead of any human being who has a forehead. A baby's forehead is a forehead.
+
+I sat on the kitchen floor. Not for any reason. The floor was where I ended up. The tile was cold through my jeans and I was thinking, in a flat clinical voice that did not feel like mine: *you knew. you knew. you knew. you have known for four years and you decided not to know because the not-knowing was the only place a future was still possible.*
+
+That was the moment the lie ended. Not when she texted *I think I always knew*. When I opened the calculator.
+
+I sat on the floor for an hour. I didn't cry. I think I was waiting to cry. The crying didn't come. What came instead was a flat, terrible quiet, the quiet of a man whose central organizing fiction had just been priced out and was being repossessed.
+
+When I stood up, I was a different man. Not better. The man I'd been was the man who'd believed in the forehead. The man I was now was the man who'd done the math.
+
+---
+
 "Because you needed to believe it. And I needed you to stay."
 
 I read that line and I understood something I'd been avoiding for five years: we had both been using each other. Not maliciously. Not cruelly. But with the unconscious efficiency of two drowning people who grab onto each other and mistake the grabbing for swimming.
 
 She used me as her escape from a violent marriage. I used her as my escape from a dead one. We called it love, and it WAS love, real and deep and devastating, but it was also two life rafts lashed together in the middle of an ocean, each one believing the other was a ship.
 
-Neither of us was a ship. We were both just trying not to drown.
+Neither of us was a ship.
 
 ---
 
@@ -4864,6 +4864,78 @@ She fell asleep to the sound of something she'd survived.
 # Chapter 22: The Cage
 
 *Two months after Meera's bathroom floor. Bellevue, Washington.*
+
+---
+
+**Ari's Phone — Screen Time Report**
+*Week of May 22 – May 28, 2023*
+
+Daily average: 11 hr 47 min
+Most used: WhatsApp (4 hr 12 min), Instagram (2 hr 38 min), TikTok (1 hr 48 min)
+
+**Week of June 5 – June 11, 2023**
+
+Daily average: 13 hr 22 min
+Most used: WhatsApp (5 hr 04 min — refreshing chat with no new messages), Instagram (3 hr 18 min), Safari (2 hr 11 min)
+
+**Week of June 26 – July 2, 2023**
+
+Daily average: 14 hr 51 min
+Most used: WhatsApp (6 hr 17 min), Instagram (4 hr 02 min — looking at Meera's stories repeatedly), Safari (2 hr 38 min)
+
+*Average sleep: 4 hr 13 min*
+
+---
+
+She'd told me she was alive. That was all I had. A four-line WhatsApp message from her sister's phone the morning after the pills, four words long: *Meera is okay. Recovering.* And then nothing. Her phone went dark. The blue ticks didn't return. The voice notes stopped. Her Instagram went private. The last story I saw before the lock was her daughter eating a mango.
+
+I stayed alive on that. The mango. The four words. The fact that there was a *recovering* in the world.
+
+For two weeks I didn't move from the couch except to refill the same cup with cold coffee. I'd open WhatsApp every nine minutes. I knew it was nine because the body learns rhythms. I'd type and not send. I'd record voice notes I deleted before the playback finished. I'd scroll back to messages from January and read the texture of a love I'd just helped poison.
+
+The girls noticed. My older daughter — eleven now, old enough to clock that something was off — asked me twice if I was okay and I said yes the way you say yes when the truth would require a different language. The second time she asked, she was holding a cereal bowl. She'd poured cereal for herself because nobody had made breakfast. I said yes. She said *okay* in the voice she used when she'd decided not to push. She took the bowl to her room.
+
+That was the worst moment of those two weeks. Worse than the bathroom floor message. Because the bathroom floor was a thing that had happened to Meera. The cereal bowl was a thing my daughter was doing to survive me.
+
+I should have known then. I didn't.
+
+---
+
+I went back to work in mid-June. Not because I was ready. Because Daniel sent a polite but firm email — *we need to talk about timeline, can you come in this week.* I went in. I performed. I sat in meetings. I gave updates that were ninety percent true. Nobody asked about the dark circles. Nobody could have known.
+
+I'd come home and check Meera's WhatsApp last-seen timestamp. *Last seen yesterday at 23:47.* That's how I knew she was alive. Twenty-three forty-seven. Twenty-two thirty-three. Twenty-one twelve. The numbers were a heartbeat.
+
+She didn't message. I didn't either. The rule we'd never stated was that I'd given up the right to be the one who reached out. After a voice note like the one I'd sent, you don't reach. You wait. And waiting was the most active thing I did all summer.
+
+---
+
+The fights started small.
+
+Priya asked if I'd taken out the recycling. I said I'd do it. She said she'd already done it because I hadn't. I said I would have. She said *yeah*. The whole exchange was eighteen seconds. I went to the bathroom and sat on the toilet seat lid for twenty minutes because I couldn't make myself stand back up.
+
+A week later, the dishwasher. She'd loaded it; I hadn't started it before bed. She started it the next morning and her tone, when she said *the dishwasher needs to be run before we go to sleep,* had something in it — not anger, just an exhaustion so old it had compressed into a kind of professional courtesy. The way you correct a coworker. I said *sorry, I'll do it next time*. I never did it next time. The dishwasher became another evidence locker.
+
+By July I was picking the fights. Not consciously. The body was. I'd hear myself ask why she hadn't told me about a school form, why the car needed an oil change again, why her mother had called me directly instead of calling her. The questions were never about the questions. The questions were *why aren't you talking to me. Why won't you look at me. Why am I dying in here.*
+
+She didn't take the bait. She'd say *okay,* or *I'll handle it,* or *you can ask her yourself,* and walk to a different room. She'd become a master at leaving rooms without making it look like leaving.
+
+I wasn't a master at anything. I was a man with eleven hours of phone time a day, four hours of sleep, an unanswered WhatsApp thread on one side and a wife who walked out of rooms on the other.
+
+---
+
+**iMessage — Sameer to Ari**
+*June 28, 2023*
+
+**Sameer:** Da call me when you can.
+
+**Ari:** Busy.
+
+**Sameer:** It's been a month.
+
+**Ari:** I'll call this weekend.
+
+*Read 11:42 PM.*
+*No reply sent.*
 
 ---
 
@@ -5342,9 +5414,9 @@ I wrote sentences I didn't send for weeks. Beginnings of texts. Beginnings of em
 
 The not-sending was the work. The man who sent the August voice note was the man who couldn't tolerate not being heard. The man who didn't send the October drafts was a different man — barely different, an inch different, but the inch mattered. He was learning that the absence of his voice was sometimes the gift.
 
-Anna said in session 8: *You're learning to be alone with your thoughts without converting them into someone else's emergency.*
+Anna noticed in session 8. She said: *Huh.* And then nothing for a long time. And then: *You didn't send any of them.* That was all. She wrote something down and we moved on. I went home and ate dal at the table.
 
-I wrote that down too. I wrote a lot of things down that month. The notebook lived next to the dal pot. The dal pot lived on the stove. The stove was in a kitchen in a house where, I didn't yet know, a woman was preparing to ask me to leave.
+I wrote a lot of things down that month. The notebook lived next to the dal pot. The dal pot lived on the stove. The stove was in a kitchen in a house where, I didn't yet know, a woman was preparing to ask me to leave.
 
 ---
 
