@@ -6308,6 +6308,8 @@ It was the best meal I'd had in months.
 
 Not because it was good. Because I'd made it. Because my mother's voice had guided my hands. Because the kitchen smelled like something I'd produced, not something I'd been served. Because for the first time in my adult life, I was feeding myself. Literally. Metaphorically. A man sitting on a kitchen floor eating his own terrible sambar, and nobody was watching, and nobody was judging, and the silence was empty, and the empty silence was okay.
 
+This is what leaving home does. You carry the culture in your accent and your taste buds but you leave behind the competence. Every NRI man I know can name his mother's sambar but not one of us learned to make it before we left. We outsourced the labor to wives we married partly because they could replicate the taste. Then we blamed the marriage for feeling transactional. I'd built my entire adult life on the assumption that someone else would do the feeding — Priya first, then Meera through a screen — and called that love. Sitting on this floor with a bowl of bad sambar was the first time I'd fed myself without asking a woman to hold the spoon.
+
 ---
 
 **WhatsApp — Drafts (never sent)**
