@@ -1,296 +1,4 @@
-# Chapter 18: Day Seven
-
----
-
-**iPhone Alarm**
-*April 2022*
-
-6:00 AM — "Last day"
-6:05 AM — "Get up"
-6:10 AM — "Seriously get up"
-
-*All three snoozed.*
-
----
-
-I set three alarms because I knew I wouldn't want to wake up. Not because I was tired. Because waking up meant the countdown was real. Fourteen hours until my flight. Fourteen hours of being in the same room as her, breathing the same air, and every breath was a countdown.
-
-She was already awake. I could feel it. The specific stillness of a person who is lying next to you with their eyes open, pretending to sleep because they know that the moment one of you speaks, the day starts, and neither of you wants the day to start because the day ends at the airport.
-
-"I know you're awake," I said.
-
-"I know you know."
-
-"We should get up."
-
-"No."
-
-"The flight—"
-
-"No."
-
-She rolled into me. Face against my chest. Arms around my ribs. Legs tangled with mine in a way that would have been uncomfortable if comfort were the point. Comfort wasn't the point. Contact was the point. Maximum surface area. As much of her skin against as much of mine as physics allowed.
-
-We lay like that for forty-five minutes. Not sleeping. Not talking. Just lying in a bed that had been ours for seven days, in a room that smelled like us — chai and hotel soap and sex and biryani and the jasmine from her hair — and breathing.
-
-Forty-five minutes of breathing next to a woman I wouldn't breathe next to again for who knows how long.
-
----
-
-She cried in the shower.
-
-I heard it through the door. Not sobbing. The quiet kind. The kind where water covers most of the sound but not all of it, and you stand outside the bathroom door with your hand on the handle and you think about going in but you don't because some grief needs privacy, even from the person causing it.
-
-I packed instead. Packing was mechanical. Shirt, pants, charger, passport. The muscle memory of a man who's been leaving places his whole life. But this time the room fought back. Every surface had evidence of her. A hair tie on the nightstand. Her slippers by the door. The dent in her pillow that still held the shape of her head.
-
-I picked up the hair tie. Small. Black. Elastic. She'd pulled her hair up while cooking last night. The smell of coconut oil was still on it.
-
-I put it in my bag. She'd never ask about it. She had a hundred of them. But I'd have one, and on some Tuesday in Seattle when the silence was too loud, I'd find it in my pocket and remember a room that smelled like chai and jasmine and the worst minibar butter in India.
-
----
-
-**Last breakfast.**
-
-She ordered dosa. I ordered idli. She stole my chutney. I stole her sambar. The same dance we'd done every morning for seven days, so practiced now that it felt like choreography.
-
-"Your flight is at 10:15?" she said.
-
-"10:45."
-
-"So you need to leave by—"
-
-"Don't."
-
-"Ari."
-
-"I know the math. Don't say it out loud."
-
-She looked at her dosa. Tore a piece. Dipped it. Chewed. Every movement slow. Deliberately slow. Like she could stretch the morning by stretching each bite.
-
-"Can I ask you something?" she said.
-
-"Anything."
-
-"In 2019. The first trip. When you left. What did you think about on the plane?"
-
-"You."
-
-"What specifically?"
-
-"The gulab jamun. The syrup on your chin. The fact that I'd just had the best three days of my life and I was sitting in economy class eating airplane peanuts and trying not to cry."
-
-"Did you cry?"
-
-"I told myself I had allergies."
-
-"On a plane."
-
-"Sudden onset plane allergies."
-
-She smiled. Not the full smile. The half one. The one that lives in the left corner of her mouth when something is funny and sad at the same time.
-
-"What are you going to think about on the plane this time?" she said.
-
-"The kothu parotta fight."
-
-She laughed. A real one this time. "That's what you'll remember? The fight?"
-
-"That's what I'll remember. Because fights mean we're real. Fights mean this isn't just two people escaping. Fights mean I know how you take your chai and you know I snore and we can disagree about parotta and still sit across from each other the next morning stealing each other's chutney."
-
-"You're going to make me cry."
-
-"You already cried. In the shower. I heard you."
-
-"I wasn't crying. I was singing."
-
-"That was singing?"
-
-"I'm not a good singer."
-
-"Meera. That was the worst singing I've ever heard. And I do TikTok Lives."
-
-She threw a piece of dosa at me. It hit my cheek. Chutney and all.
-
----
-
-**Uber to the Airport**
-*April 2022*
-
-The ride was thirty-two minutes. We held hands the entire time. Not laced fingers. Not casual touching. The desperate grip of two people holding on to something they can't keep. Her palm was sweating. Mine was sweating. India is hot and goodbyes are hotter.
-
-The driver had the radio on. Some Tamil love song from the '90s. Because the universe is a DJ who reads the room and decides to make it worse.
-
-She leaned into me. Her head on my shoulder. The same position from the auto-rickshaw after the parotta fight. But this time the silence wasn't comfortable. This time the silence was full. Packed with everything we couldn't say because saying it would break both of us and we needed to hold together for thirty-two more minutes.
-
-At minute twenty-eight, she spoke.
-
-"Don't look back."
-
-"What?"
-
-"When you go through security. When you walk to the gate. Don't turn around and look at me. Because if you look at me, I'll run to you. And if I run to you, I won't let go. And if I don't let go, I'll follow you through security and onto the plane and to Seattle and into your house and I'll never leave and the world will burn."
-
-"That sounds fine."
-
-"Ari."
-
-"Fine. I won't look back."
-
----
-
-**Departure Terminal**
-
-The airport was bright and cold and full of people who weren't leaving someone they loved. Families with suitcases. Business travelers on laptops. A group of college kids taking selfies. Everyone in motion. Everyone going somewhere. Nobody standing still at the entrance to security, holding a woman's hands, trying to memorize the feel of her knuckles because he won't feel them again until the next time, and there's no date for the next time, there's never a date, there's only "soon" and "soon" is the cruelest word in any language.
-
-"Okay," I said.
-
-"Okay," she said.
-
-I kissed her. Not long. Not short. The exact duration of a kiss between two people in an airport who are trying to fit a week into a mouth.
-
-I let go of her hands. Picked up my bag. Turned toward security.
-
-"Ari."
-
-I stopped. I didn't turn around.
-
-"I love you. More than this airport can hold."
-
-"I love you more than this plane can carry," I said. The same words from 2019. Our call-and-response. Our liturgy.
-
-I walked to security. Showed my passport. Put my bag on the belt. Walked through the metal detector. Collected my bag. Walked to the gate.
-
-I didn't look back.
-
-I wanted to. Every step. Every tile on that airport floor was a negotiation between the part of me that promised and the part of me that was already breaking. My neck was a battlefield. Every muscle wanted to turn. To see her one more time. To catch whatever expression she was wearing — crying, waving, standing still, already gone.
-
-I didn't look back.
-
-I sat at the gate and put my head in my hands and stayed like that until they called boarding. A man in a plastic chair in an airport in India with his head in his hands. Nobody in that terminal thought: that man just left a woman at the curb and promised not to turn around and it's costing him everything he has.
-
----
-
-**The Flight**
-
-Eighteen hours. Two connections. The first leg was four hours. I had a window seat. The plane took off and turned and for three seconds, through the scratched plastic of the window, I could see the city below. Her city. The city where she'd walk back to an auto-rickshaw and ride home and close the blue door and become a wife again.
-
-Three seconds. Then clouds.
-
-I put my forehead against the window and closed my eyes and replayed the week. Not the sex. The morning eggs with minibar butter. The temple that smelled like jasmine. The kothu parotta fight. The snoring recording she'd never delete. Her blanket-hogging. Her "dei" when she was annoyed, the one Tamil word that sounded like home.
-
----
-
-**Seattle — Arrival**
-
-The house was cold.
-
-Not temperature cold. April in Seattle is mild. The kind of cold that lives in a house where no one is waiting. No lights on. No food cooking. No television murmuring. Just still air and closed curtains and the smell of a house that has been breathing by itself for seven days.
-
-Priya's car was in the driveway. She was home. But the house didn't feel like it. The house felt the way it had felt for years — occupied but empty. Bodies present, people absent.
-
-I put my bag down in the hallway. Took off my shoes. The same hallway I'd walked through a thousand times. The same shoes on the same rack. But I was different. Seven days of a woman laughing in a kitchenette had changed the molecular structure of my re-entry.
-
-"How was the trip?" Priya said from the kitchen. Not looking up. Stirring something. Rice, probably. The perpetual rice.
-
-"Fine."
-
-"Good."
-
-That was it. That was the homecoming. Fine. Good. A dead marriage's entire vocabulary.
-
-I went to the couch. My couch. My blanket was still there, folded the way I'd left it. My charger still plugged in. My earbuds on the side table. Everything exactly as I'd left it. Nothing had moved. Nothing had changed. A week of the most alive I'd ever been, and the evidence of my real life was a folded blanket on a couch that hadn't noticed I was gone.
-
-I sat down. Took out my phone.
-
----
-
-**WhatsApp Messages**
-*April 2022*
-
-**Meera:** Are you home?
-
-**Ari:** Yes.
-
-**Meera:** How is it?
-
-**Ari:** Cold.
-
-**Meera:** Seattle cold or marriage cold?
-
-**Ari:** Yes.
-
-**Meera:** 😢
-
-**Ari:** Don't. I'm okay.
-
-**Meera:** You're not okay. I can hear it through the text.
-
-**Ari:** I'm sitting on the couch. Priya is making rice. The house smells like nothing. I just spent seven days in a room that smelled like you and now I'm sitting in a room that smells like nothing and I don't know how to be here anymore.
-
-**Meera:** I know.
-
-**Ari:** How do you do it? How do you go back every time?
-
-**Meera:** I become someone else. The woman in the hotel room goes to sleep. The wife wakes up. They're different people. The wife can survive anything because she doesn't remember what the hotel room felt like.
-
-**Ari:** That's not healthy.
-
-**Meera:** That's not the point. The point is surviving until the next time.
-
-**Ari:** When is the next time?
-
-**Meera:** Soon.
-
----
-
-Soon.
-
-Soon. The word that kept us alive and kept us trapped.
-
-I put the phone down. Leaned back on the couch. Stared at the ceiling.
-
-Different ceiling. Same position. A man on his back, staring up, separated from the woman he loves by eight thousand miles and a marriage that neither of them could end.
-
-From the kitchen, the sound of rice being stirred. The steady, rhythmic scraping of a wooden spoon against a pot. The sound of a wife cooking dinner for a husband who was already gone.
-
-I closed my eyes.
-
-In seven days, the memory would start fading. The edges would soften. Her laugh would get quieter. The taste of kothu parotta would blur into the taste of other meals. The feel of her hand in mine would become abstract, a concept instead of a sensation.
-
-That's how distance works. It preserves the love and erodes the evidence. You remember that you felt something. You forget what it felt like.
-
-Except the hair tie. I reached into my jacket pocket. It was still there. Small. Black. Elastic.
-
-I held it in my fist and let it be enough.
-
----
-
-
----
-
-
-
----
-
-# PART FIVE: THE UNRAVELING
-*2022 – 2023*
-
----
-
-# The Woman in My Phone — Parts 4–6
-
-### A Novel by A. Rathna
-
-*Continued from THE-WOMAN-IN-MY-PHONE-V9-PART1.md*
-
----
-
-# PART FIVE: THE UNRAVELING
-*2022 – 2023*
-
----
-
-# Chapter 19: The Suspicion
+# Chapter 18: The Suspicion
 
 ---
 
@@ -447,7 +155,7 @@ Then the pregnancy.
 
 ---
 
-The room went white.
+I stared at the screen. I read it again. I read it a third time. Then I put the phone down and didn't know what to do with my hands.
 
 Not mine . It wasn't his. It COULDN'T be mine. I was eight thousand miles away. I hadn't touched her since April. Four months. The math was irrefutable.
 
@@ -551,7 +259,7 @@ It mattered because I needed her to be mine. Completely. Entirely. Not shared. N
 
 *"This isn't love anymore. This is surveillance with a heartbeat."*
 
-*"But I can't stop. Because the one time I trusted completely — the baby, the forehead, 'it could be yours' . It turned out to be a lie. Maybe not a malicious lie. Maybe a hopeful one. But still a lie. And once you've been lied to by the person you trust most, you start auditing everything."*
+*"But I can't stop. Because the one time I trusted completely — the baby, the forehead, 'it could be yours' — I never checked. I never did the math. I chose not to. And now I can't stop wondering what else I've chosen not to see."*
 
 *"I'm auditing her. And she can feel it. And it's killing us."*
 
@@ -631,7 +339,7 @@ Crowded loneliness in the world.
 ---
 
 
-# Chapter 20: The Break
+# Chapter 19: The Break
 
 ---
 
@@ -828,13 +536,39 @@ She confirmed it. Quietly. Almost as an afterthought.
 
 ---
 
+I put the phone down. Then I picked it up again, opened my photos, and scrolled.
+
+I had a folder. I'd never named it. iOS had named it for me — *Recent.* But inside the Recents was a buried sub-album I'd built over four years, every photo Meera had ever sent me of the baby. The baby I'd called my maybe-daughter. The baby I'd sent ultrasound images of to my own contacts under the contact name *medical, do not delete.* The baby whose first laugh I'd heard through a crackling 3G connection at 2 AM Seattle time and who I'd told my therapist about, when I finally got a therapist, before I told her about Meera.
+
+The first ultrasound was dated. January 5, 2019. Twelve weeks. The next photo, six months later, was Nila in a pink swaddle. July 2019. I scrolled and scrolled. Each photo was a stop on a calendar I'd never made explicit.
+
+I opened the calculator app. I had not opened the calculator app in months. January 5 minus twelve weeks. The pregnancy had started in mid-October 2018.
+
+I closed the calculator. Opened my notes. Found the entry from October 2018. In October 2018 I had not been in India. In October 2018 I had never been to India. Had never touched her. Would not touch her for another five months. The first crossing was February 2019. The conception was four months before I ever set foot in that hotel room.
+
+The math had never been mine. The math had never been mine and I had known it. The math had been on my phone in a calculator app for four years and I had simply not opened the app.
+
+I put the phone face down on the counter. There was a streak of dish soap on the corner. Priya had wiped the counter that morning. I looked at the streak.
+
+The forehead. Meera had told me the baby had my forehead.
+
+A baby has the forehead of any human being who has a forehead.
+
+I sat on the floor. The tile was cold through my jeans. *You knew. You knew. You knew.*
+
+I sat there for an hour. I didn't cry. I kept waiting for it. It didn't come.
+
+When I stood up my legs were stiff and I had to grab the counter.
+
+---
+
 "Because you needed to believe it. And I needed you to stay."
 
 I read that line and I understood something I'd been avoiding for five years: we had both been using each other. Not maliciously. Not cruelly. But with the unconscious efficiency of two drowning people who grab onto each other and mistake the grabbing for swimming.
 
 She used me as her escape from a violent marriage. I used her as my escape from a dead one. We called it love, and it WAS love, real and deep and devastating, but it was also two life rafts lashed together in the middle of an ocean, each one believing the other was a ship.
 
-Neither of us was a ship. We were both just trying not to drown.
+Neither of us was a ship.
 
 ---
 
@@ -854,7 +588,7 @@ Neither of us was a ship. We were both just trying not to drown.
 
 ---
 
-# Chapter 21: The Edge
+# Chapter 20: The Edge
 
 ---
 
@@ -881,8 +615,6 @@ Neither of us was a ship. We were both just trying not to drown.
 *[End of voice note.]*
 
 ---
-
-That voice note is the thing I'm most ashamed of in this entire story.
 
 I was right about the facts. I was right about most of them. But because I took every ounce of pain I'd accumulated over five years, the silence, the ghosting, the pregnancy lies, the broken promises, the "soons" that never came, and aimed it at a woman who was already on the ground.
 
@@ -1031,7 +763,7 @@ Two children now. Both his. Both born inside a marriage that should never have e
 
 ---
 
-# Chapter 22: The Bathroom Floor
+# Chapter 21: The Bathroom Floor
 
 ★ *Meera's POV*
 
@@ -1235,9 +967,77 @@ She fell asleep to the sound of something she'd survived.
 
 ---
 
-# Chapter 23: The Cage
+# Chapter 22: The Cage
 
 *Two months after Meera's bathroom floor. Bellevue, Washington.*
+
+---
+
+**Ari's Phone — Screen Time Report**
+*Week of May 22 – May 28, 2023*
+
+Daily average: 11 hr 47 min
+Most used: WhatsApp (4 hr 12 min), Instagram (2 hr 38 min), TikTok (1 hr 48 min)
+
+**Week of June 5 – June 11, 2023**
+
+Daily average: 13 hr 22 min
+Most used: WhatsApp (5 hr 04 min — refreshing chat with no new messages), Instagram (3 hr 18 min), Safari (2 hr 11 min)
+
+**Week of June 26 – July 2, 2023**
+
+Daily average: 14 hr 51 min
+Most used: WhatsApp (6 hr 17 min), Instagram (4 hr 02 min — looking at Meera's stories repeatedly), Safari (2 hr 38 min)
+
+*Average sleep: 4 hr 13 min*
+
+---
+
+She'd told me she was alive. That was all I had. A four-line WhatsApp message from her sister's phone the morning after the pills, four words long: *Meera is okay. Recovering.* And then nothing. Her phone went dark. The blue ticks didn't return. The voice notes stopped. Her Instagram went private. The last story I saw before the lock was her daughter eating a mango.
+
+I stayed alive on that. The mango. The four words. The fact that there was a *recovering* in the world.
+
+For two weeks I didn't move from the couch except to refill the same cup with cold coffee. I'd open WhatsApp every nine minutes. I knew it was nine because the body learns rhythms. I'd type and not send. I'd record voice notes I deleted before the playback finished. I'd scroll back to messages from January and read the texture of a love I'd just helped poison.
+
+The girls noticed. My older daughter — eleven now, old enough to clock that something was off — asked me twice if I was okay and I said yes the way you say yes when the truth would require a different language. The second time she asked, she was holding a cereal bowl. She'd poured cereal for herself because nobody had made breakfast. I said yes. She said *okay* in the voice she used when she'd decided not to push. She took the bowl to her room.
+
+I should have known then. I didn't.
+
+---
+
+I went back to work in mid-June. Not because I was ready. Because Daniel sent a polite but firm email — *we need to talk about timeline, can you come in this week.* I went in. I performed. I sat in meetings. I gave updates that were ninety percent true. Nobody asked about the dark circles. Nobody could have known.
+
+I'd come home and check Meera's WhatsApp last-seen timestamp. *Last seen yesterday at 23:47.* That's how I knew she was alive. Twenty-three forty-seven. Twenty-two thirty-three. Twenty-one twelve.
+
+She didn't message. I didn't either. After a voice note like the one I'd sent, you don't reach. You wait.
+
+---
+
+The fights started small.
+
+Priya asked if I'd taken out the recycling. I said I'd do it. She said she'd already done it because I hadn't. I said I would have. She said *yeah*. The whole exchange was eighteen seconds. I went to the bathroom and sat on the toilet seat lid for twenty minutes because I couldn't make myself stand back up.
+
+A week later, the dishwasher. She'd loaded it; I hadn't started it before bed. She started it the next morning and her tone, when she said *the dishwasher needs to be run before we go to sleep,* had something in it — not anger. The way you correct a coworker. I said *sorry, I'll do it next time*. I never did it next time.
+
+By July I was picking the fights. Not consciously. The body was. I'd hear myself ask why she hadn't told me about a school form, why the car needed an oil change again, why her mother had called me directly instead of calling her.
+
+She didn't take the bait. She'd say *okay,* or *I'll handle it,* or *you can ask her yourself,* and walk to a different room.
+
+---
+
+**iMessage — Sameer to Ari**
+*June 28, 2023*
+
+**Sameer:** Da call me when you can.
+
+**Ari:** Busy.
+
+**Sameer:** It's been a month.
+
+**Ari:** I'll call this weekend.
+
+*Read 11:42 PM.*
+*No reply sent.*
 
 ---
 
@@ -1517,7 +1317,7 @@ Here's what jail taught me that three years of therapy couldn't:
 
 I wasn't the victim of this story.
 
-Not of my marriage. Not of Meera's distance. Not of anyone's silence. I was a man who'd made choices — hundreds of them, thousands of them, starting with a TikTok Live and ending with a wrist-grab in a kitchen in Bellevue — and every single choice was mine. Not fate. Not love. Not desperation. Mine.
+I was a man who'd made choices — hundreds of them, thousands of them, starting with a TikTok Live and ending with a wrist-grab in a kitchen in Bellevue — and every single choice was mine.
 
 The teacher with the DUI. The dealers with the shootout story. The kid who pissed on the floor. We were all in the same cell. Same bench. Same light. We all had stories about how we got there and every story started with "I didn't mean to" or "it wasn't supposed to go this way" or "you don't understand." Same stories. Same bench.
 
@@ -1562,7 +1362,7 @@ I didn't understand it that day. I wrote it down in my phone so I wouldn't lose 
 
 I meant it. The voice note, the pills, the bathroom floor, that sequence had burned something out of me. The angry man. The suspicious man. The man who needed to be right more than he needed to be good. That man had seen what his righteousness produced: a woman on a bathroom floor with paracetamol in her stomach, and he'd retired. Permanently.
 
-What replaced him wasn't yet a King. That came later. But it was at least a man who understood, finally, that love expressed as control is not love. It's just loneliness wearing a louder voice.
+What replaced him wasn't yet a King. That came later. But it was at least a man who understood, finally, that love expressed as control is not love.
 
 ---
 
@@ -1587,12 +1387,141 @@ What replaced him wasn't yet a King. That came later. But it was at least a man 
 
 ---
 
+The wrist-grab was a Friday. Sameer drove me home Sunday night.
+
+Monday I didn't go to work. Tuesday I didn't either. Wednesday I sat at the kitchen counter and opened my laptop and looked at 327 unread emails and closed the laptop and went back to the couch.
+
+Nothing important happened for a long time.
+
+---
+
+**iPhone Health App — Sleep**
+*Weeks of August 28 – September 18, 2023*
+
+| Week | Avg sleep | Time in bed |
+|------|-----------|-------------|
+| Aug 28 | 3:42 | 11:14 |
+| Sep 4 | 3:18 | 13:02 |
+| Sep 11 | 4:51 | 10:33 |
+| Sep 18 | 5:40 | 9:48 |
+
+---
+
+I lay on the couch for hours at a time without sleeping. The phone was facedown on the coffee table. The TV was on but on something I wasn't watching — the cooking channel, mostly, because the cooking channel doesn't have plot. Someone in a clean kitchen explained how to roast a chicken. Then how to make a vinaigrette. Then how to braise short ribs. The shows ran into each other in a continuous instruction I had no intention of following.
+
+I didn't shower for four days the first week. Then I did.
+
+I ate. Granola bars from a box on top of the fridge. Eggs sometimes. A frozen pizza my older daughter must have left in the freezer. The first thing I cooked from scratch was a pot of dal — water, dal, turmeric, ginger, salt. I ate it standing at the stove. I ate the next bowl thirty minutes later, also standing at the stove. I made a second pot the next day.
+
+The dal was the first thing I'd done with my hands that produced an outcome other than damage. I should have noticed that. I didn't.
+
+---
+
+**Therapist Session Notes — Anna Reyes, LMHC**
+*Session 3 — September 7, 2023*
+
+*Client presents lower affect than session 2. Reports difficulty with daily routines. Denies SI. "It's not that I want to die. It's that I don't want to do anything." Encouraged: small structures (eating at table not standing, one walk per day, shower before noon).*
+
+*Spent twenty minutes defending wrist-grab as "not violence." Recommended he sit with the word violence rather than negotiate its definition.*
+
+*Homework: write down everything he was right about in voice note. Bring next week. Goal: separate the facts from the delivery.*
+
+---
+
+I didn't do the homework. Not because I forgot. Because I sat down to do it three times and got as far as opening the Notes app and couldn't write the first sentence.
+
+Anna didn't ask about it. She let it sit. She just said *we'll come back to it,* and in the next session we did something else.
+
+The session after that, I tried again. Wrote three sentences. Cried for forty minutes. Stopped writing. Brought the three sentences in. She read them and said *good* and we kept going.
+
+It took five sessions to fill a single page. Five weeks. The page is in a drawer in my apartment now. I haven't read it again.
+
+---
+
+I went to the grocery store on a Wednesday afternoon at 2 PM because I wanted no people in it.
+
+QFC. Fluorescent. Half-empty. The same store I'd been going to for fifteen years. I knew the aisles by heart, which meant I could shop without thinking, which was the only kind of shopping I could do. Eggs. Milk. Bread. Cheddar. A bag of apples. Onions. Garlic. Lentils. Tomatoes. Cilantro.
+
+The cashier was a woman in her fifties with tired eyes and a knee brace. She rang me up without making conversation. The total was forty-seven dollars and change. I tapped my card. The receipt printed.
+
+"Have a good one."
+
+"You too."
+
+I drove home with the bag in the passenger seat. I unpacked the groceries. I put each item where it went. I rinsed the cilantro and patted it dry and laid it on a paper towel like Priya used to. I cooked dal again.
+
+I sat at the kitchen table to eat it. The table. Not standing. With a placemat I found in the drawer, because Anna had said something about structures.
+
+---
+
+**Ari's Phone — Missed Calls**
+*September 2023*
+
+| Date | Caller | Length |
+|------|--------|--------|
+| Sep 4 | Sameer | 0:00 |
+| Sep 6 | Mom | 0:00 |
+| Sep 6 | Sameer | 0:00 |
+| Sep 9 | Mom | 14:22 (answered) |
+| Sep 11 | Sameer | 0:00 |
+| Sep 12 | Daniel (work) | 0:00 |
+| Sep 14 | Sameer | 9:18 (answered) |
+
+---
+
+I picked up Sameer's call on the third try because he'd called four days in a row and I knew the next move would be him driving to the house. I picked up Mom because not picking up made her cry into the voicemail. I didn't pick up Daniel because Daniel was professional and Daniel could be handled by email and an email was a thing I could draft over six hours.
+
+Sameer didn't ask how I was doing. He told me about his dad. The stroke had been smaller than first reported but the rehab was going to be long. His mom was being a Tamil mom about it — making three meals a day and refusing to let anyone else cook, the way Tamil moms grieve by feeding people too much. Sameer's wife was pregnant and her morning sickness had escalated to full-day sickness. He talked for twenty minutes without taking a breath.
+
+I listened. I didn't perform listening. I just listened.
+
+At the end he said *you don't have to talk about it, I just wanted to know you picked up the phone,* and I said *thanks,* and we hung up.
+
+I thought about Sameer's dad for the rest of the night. Not Meera. Not Priya. A man I'd met twice in fifteen years, lying in a hospital in Chennai, doing PT on a left arm that didn't want to cooperate.
+
+---
+
+I started running in the second week of September. Not far. Down the street, around the loop, back. Twelve minutes the first day. Fifteen the second. Twenty by the end of the week.
+
+Running because: the alternative was the couch.
+
+The running got me out of the house for forty minutes a day during which I could think about my breath instead of myself.
+
+That was enough. Some weeks that was the whole win.
+
+---
+
+**iPhone Notes — Saved Drafts**
+*October 2023*
+
+*Untitled draft (never sent):*
+
+*"Meera — I"*
+
+*Untitled draft (never sent):*
+
+*"I want you to know"*
+
+*Untitled draft (never sent):*
+
+*"There are things I should say but"*
+
+---
+
+I wrote sentences I didn't send for weeks. Beginnings of texts. Beginnings of emails. The first three words of a voice note I deleted before recording.
+
+Anna noticed in session 8. She said: *Huh.* And then nothing for a long time. And then: *You didn't send any of them.* That was all. She wrote something down and we moved on. I went home and ate dal at the table.
+
+I didn't know yet that a woman was preparing to ask me to leave.
+
+---
+
 # PART SIX: ABUNDANCE
 *2023 – 2027*
 
 ---
 
-# Chapter 24: Priya
+# Chapter 23: Priya
 
 ★ *Priya's POV*
 
@@ -1623,6 +1552,44 @@ Priya knew.
 Not everything. Not the hotel rooms or the phone calls at 2 AM or the specific architecture of a five-year love affair conducted across eight thousand miles. Not the name. Not the face. Not the body. She didn't know Meera existed the way you don't know the name of the disease that's been eating your husband from the inside. You just know he's sick. You know because you live with him. Because you sleep next to the symptoms every night.
 
 She knew the way a woman knows.
+
+---
+
+But she'd known something was wrong long before the cologne. Years before.
+
+A Sunday in October 2016. They'd been married five years. The girls were small — Anika was four, Nila was eighteen months. Ari was on the couch with his laptop. Priya was in the kitchen making rasam. The girls were in the playroom watching something with too much music.
+
+She walked out to ask him a question. *Did you renew the car tabs?* Something normal.
+
+She stood in the doorway. He didn't look up. She said his name. He said *yeah,* without lifting his eyes. She asked the question. He typed something on his keyboard and said *yeah it's done.* She waited a beat to see if he'd ask anything back. He didn't. She went back to the kitchen.
+
+She stirred the rasam. The mustard seeds had crackled too long; she'd burned the tempering. She turned off the burner and poured the burnt oil into the sink and started over with fresh seeds, and as she stood there waiting for the seeds to crackle a second time, she noticed she wasn't upset about the rasam. She was upset about thirty seconds in a doorway.
+
+She didn't name it as upset. She thought of it as *tired.*
+
+---
+
+There were a hundred Sundays like that.
+
+Sundays where they sat in the same room for four hours and exchanged eight sentences. Sundays where she'd mention something a colleague had said and he'd nod without looking up and she'd realize halfway through the sentence that she didn't actually need to finish it because he wasn't listening, and the realization would arrive too quietly to register as hurt — it would just register as *don't bother* — and she'd swallow the second half of the sentence and that swallowed sentence would join the others in a place inside her she didn't have a word for yet.
+
+Sundays where the girls would do something funny and they'd both laugh and for a half-second the marriage would feel intact, and then the girls would go back to their show and the half-second would expire and they'd retreat into their separate phones, separate laptops, separate rooms inside the same house.
+
+---
+
+There was one moment of tenderness Priya kept thinking about for years afterward.
+
+It was 2017. Late. She'd had a stomach bug — the kind that comes back twice a night for three nights — and she'd been throwing up at 3 AM, crouched on the bathroom floor with her hair in her hand, and she'd been ashamed of the noise, ashamed of how the house could hear her.
+
+Ari woke up. She didn't ask him to. He just appeared in the doorway in his t-shirt and pajama pants and his hair sticking up, and he didn't say anything — *are you okay* was a question with too many answers — he just sat down behind her on the bathmat and held her hair back. For an hour. She threw up twice more and he held her hair and rubbed her back in a slow circle and didn't say anything because the situation didn't ask for words, and when it was over he helped her brush her teeth and walked her back to bed and brought her a glass of water and a saltine and slept on top of the covers next to her in case it came back.
+
+It didn't come back. She slept for nine hours.
+
+She kept that night the way some people keep a photograph. She'd take it out, on hard nights, and turn it over in her mind. *He did this. He's capable of this. He's still in there.* For years that night was her evidence.
+
+By 2023 she'd stopped taking it out. It hurt more than it helped.
+
+---
 
 The cologne. That was first. 2019. February. He'd never worn cologne to "work trips" before. In twelve years of marriage, Ari's travel preparation was: check passport, pack charger, complain about the flight. Suddenly there was a bottle of something expensive on the bathroom counter, and he was spraying it on his neck with the precision of a man who expected someone to smell him.
 
@@ -1705,7 +1672,7 @@ He didn't want to be here. He hadn't wanted to be here for years. The woman, who
 
 ---
 
-Priya married Ari when she was twenty-two. A good match. Good family. Good job. Good-looking in the way Tamil mothers approve of: fair enough, tall enough, American salary. Her parents were proud. His parents were proud. The wedding was three days of silk and sandalwood and promises made in a language older than anyone in the room.
+Priya married Ari when she was twenty-four. A good match. Good family. Good job. Good-looking in the way Tamil mothers approve of: fair enough, tall enough, American salary. Her parents were proud. His parents were proud. The wedding was three days of silk and sandalwood and promises made in a language older than anyone in the room.
 
 She'd loved him. That part gets lost in his version of the story, and she understood why. In his telling, the marriage was dead from the start. Cold bed. Wall-facing. Silence. And that's true. By 2018, that's what the marriage was. But marriages don't start dead. They die over time, in small ways, through a thousand choices that nobody remembers making.
 
@@ -1745,7 +1712,7 @@ The forgiveness was always provisional. She gave it and immediately started watc
 
 The India trip was the before and after. The first one — 2019, the cologne, the precision of a man who expected to be smelled — she told herself she was imagining things. The second time he came back smelling like someone else's soap, something in her calcified permanently. Not rage. Certainty. She knew. And knowing changed the shape of everything that came after: every brief softening, every provisional forgiveness, every almost-good moment now carried the weight of what she knew underneath it. She was forgiving a man she'd already convicted. The forgiveness was real. The conviction was also real. Both things at once, every day, for years.
 
-So she stayed. And he stayed. And they performed a marriage for twelve years, and the performance was so convincing that his parents called every Sunday and said "you two are so stable" and her parents told relatives "they're settled, very happy" and the word "settled" was doing so much work it should have filed for overtime.
+So she stayed. And he stayed. And they performed a marriage for twelve years, and the performance was so convincing that his parents called every Sunday and said "you two are so stable" and her parents told relatives "they're settled, very happy."
 
 ---
 
@@ -1781,6 +1748,8 @@ The other woman got the cologne. The phone calls. The whispered voice. The man w
 Priya got the silence. The couch. The wall. The man who'd stopped.
 
 And the terrible, honest truth that she'd stopped too. That the wall wasn't just a rejection of him. It was a surrender. The moment she turned away and he went to the couch, they'd both signed a treaty that neither of them had the courage to read aloud.
+
+---
 
 ---
 
@@ -1895,7 +1864,7 @@ And then silence. The same silence that had defined them for years, but differen
 
 She cried that night. Alone. In the bed that was now just hers. Not because the marriage was over. Because she'd waited so long. Because the years between knowing and acting were years she'd never get back. Because the woman who'd faced the wall at year four could have walked out the door, and instead she'd stayed for eight more years of sambar and silence and sleeping next to a man who whispered someone else's name into a phone.
 
-She cried for the twenty-two-year-old bride who'd believed in silk and sandalwood. For the woman who'd tried lingerie and felt foolish. For the engineer who built systems that never failed and couldn't fix her own marriage. For the daughter who'd carry her parents' shame like a second skin.
+She cried for the twenty-four-year-old bride who'd believed in silk and sandalwood. For the woman who'd tried lingerie and felt foolish. For the engineer who built systems that never failed and couldn't fix her own marriage. For the daughter who'd carry her parents' shame like a second skin.
 
 She cried for Ari, too. Because he wasn't a villain. He was a man who'd married the wrong woman and punished them both for it for twelve years. He'd never been cruel. Never stopped providing. Never forced her for anything. He'd simply... left. Emotionally. Spiritually. And eventually, by the time she asked him to go, physically.
 
@@ -1925,7 +1894,7 @@ His crime was absence. And her crime was staying in the room where he wasn't.
 
 ---
 
-# Chapter 25: Priya After ★
+# Chapter 24: Priya After ★
 
 ---
 
@@ -2028,7 +1997,7 @@ She goes to the lobby to say good morning.
 
 ---
 
-# Chapter 26: The Leaving
+# Chapter 25: The Leaving
 
 ---
 
@@ -2251,7 +2220,7 @@ She saved herself. I just happened to be watching.
 
 ---
 
-# Chapter 27: The First Apartment ★
+# Chapter 26: The First Apartment ★
 
 ---
 
@@ -2267,7 +2236,7 @@ She is extremely good at it.
 
 Her co-workers do not know she is extremely good at it, because being extremely good at a small job is invisible. She likes this. She has been visible enough for a lifetime.
 
-Nila is three years old and she sleeps in the room next to hers, which is also the only other room, which is a closet with a window. She has made the closet into a galaxy — glow-in-the-dark stars on the ceiling, a nightlight shaped like a half-moon, a small bookshelf with seventeen books Nila has memorized. She calls it her spaceship. She tells Meera, every night, as she tucks her in: amma, the spaceship is taking off. Meera says, every night: safe travels, pilot. She closes her eyes. She sleeps.
+Nila is five years old and she sleeps in the room next to hers, which is also the only other room, which is a closet with a window. She has made the closet into a galaxy — glow-in-the-dark stars on the ceiling, a nightlight shaped like a half-moon, a small bookshelf with seventeen books Nila has memorized. She calls it her spaceship. She tells Meera, every night, as she tucks her in: amma, the spaceship is taking off. Meera says, every night: safe travels, pilot. She closes her eyes. She sleeps.
 
 This ritual cost her a marriage.
 
@@ -2291,7 +2260,7 @@ Meera does not cry in front of her. She has a rule.
 
 She breaks the rule.
 
-She lies down on the floor of the spaceship next to Nila's small bed and she cries and she says, to the glow-in-the-dark ceiling: No. No, pilot. No, no, no. It is because of me. It is because I had to learn how to be a person who could be your mother and not disappear. Do you understand? Nila does not understand. She is three. She says: okay, amma. She pats Meera's hair like Meera is the child. Meera lies there until Nila sleeps.
+She lies down on the floor of the spaceship next to Nila's small bed and she cries and she says, to the glow-in-the-dark ceiling: No. No, pilot. No, no, no. It is because of me. It is because I had to learn how to be a person who could be your mother and not disappear. Do you understand? Nila does not understand. She is five. She says: okay, amma. She pats Meera's hair like Meera is the child. Meera lies there until Nila sleeps.
 
 Then she gets up, washes her face, goes to the galley kitchen, and makes herself the second bad coffee of the day. She drinks it standing. She does not cry again.
 
@@ -2358,7 +2327,7 @@ She is right.
 
 ---
 
-# Chapter 28: The Empty House
+# Chapter 27: The Empty House
 
 ---
 
@@ -2392,21 +2361,15 @@ The door closed behind me with a sound that should have been louder. Twelve year
 
 The apartment was seven hundred square feet. One bedroom, one bathroom, a kitchen that connected to a living room through an archway that the listing called "open concept" and reality called "small." The carpet was beige. The walls were white. The previous tenant had left a nail in the wall above where a TV must have hung, and the nail's shadow was a small dark rectangle, the ghost of someone else's life.
 
-I sat on the guest room mattress, which was now the only mattress, which was on the floor because the bed frame hadn't been assembled yet, and I looked at the apartment and I thought: this is what forty looks like.
+I sat on the guest room mattress, which was now the only mattress, which was on the floor because the bed frame hadn't been assembled yet, and I looked at the apartment and I thought: this is what thirty-seven looks like.
 
-Not forty with a wife and a house and the infrastructure of a life that other people could see and say "he's doing well." Forty in an apartment with beige carpet and a nail in the wall and six boxes of books I hadn't read since my twenties but couldn't bring myself to donate because they were the only things in the apartment that had history.
+Not thirty-seven with a wife and a house and the infrastructure of a life that other people could see and say "he's doing well." Thirty-seven in an apartment with beige carpet and a nail in the wall and six boxes of books I hadn't read since my twenties but couldn't bring myself to donate because they were the only things in the apartment that had history.
 
 ---
 
 The silence was different.
 
-I need to explain this because people think silence is silence. It's not. There are species of silence, and I'd lived in most of them.
-
-The silence of the marriage: two people in the same house, not speaking. The hum of the refrigerator filling the space where conversation should be. Priya in the bedroom, me on the couch, the TV between us doing the work of a mediator. That silence was heavy. Pressurized. The silence of a submarine. Two people breathing the same recycled air, knowing the hull is holding, knowing eventually it won't.
-
-The silence of Meera's ghosting: the silence of absence. No messages. No calls. The phone a black mirror reflecting nothing back. That silence was a vacuum. It pulled at you. It made you lean toward the phone, check the screen, tap the app, scroll for signs of life. Active silence. Hungry silence.
-
-This silence — the apartment silence — was different from both. It wasn't the silence of someone refusing to speak. It wasn't the silence of someone who'd disappeared. It was the silence of nobody being there at all. No one to refuse. No one to disappear. Just rooms and air and beige carpet and the distant sound of the upstairs neighbor's TV through the ceiling.
+It wasn't the silence of someone refusing to speak. It wasn't the silence of someone who'd disappeared. It was the silence of nobody being there at all. Just rooms and air and beige carpet and the distant sound of the upstairs neighbor's TV through the ceiling.
 
 Empty silence. And empty silence, it turns out, is the one you can actually breathe in.
 
@@ -2442,7 +2405,7 @@ I stood in the rice aisle for four minutes. Holding a five-pound bag. Doing the 
 
 The math was simple. The math was unbearable.
 
-I bought the five-pound bag. And a pan. And the smallest container of sambar powder they had, because I was going to learn to make sambar, because my mother had made sambar and Priya had made sambar and Meera had made sambar and every woman in my life had made sambar and I had never made sambar and I was forty years old and it was time.
+I bought the five-pound bag. And a pan. And the smallest container of sambar powder they had, because I was going to learn to make sambar, because my mother had made sambar and Priya had made sambar and Meera had made sambar and every woman in my life had made sambar and I had never made sambar and I was thirty-seven years old and it was time.
 
 ---
 
@@ -2495,7 +2458,7 @@ Not for comfort. For instructions. She was seventy-two and lived in Pondicherry 
 
 "Amma. How do you make sambar?"
 
-Silence. The specific silence of a Tamil mother processing the fact that her forty-year-old son, who has been eating sambar for four decades, does not know how to make sambar.
+Silence. The specific silence of a Tamil mother processing the fact that her thirty-seven-year-old son, who has been eating sambar for three and a half decades, does not know how to make sambar.
 
 "You don't know how to make sambar?"
 
@@ -2529,7 +2492,7 @@ Another silence. Longer. The kind where a mother does the math and arrives at th
 
 "Aiyoo."
 
-She walked me through it. Twenty-five minutes of instruction, delivered with the patience of a woman who had waited forty years for this phone call and the exasperation of a woman who couldn't believe it had taken this long.
+She walked me through it. Twenty-five minutes of instruction, delivered with the patience of a woman who had waited thirty-seven years for this phone call and the exasperation of a woman who couldn't believe it had taken this long.
 
 The sambar was terrible. Watery. Under-salted. The dal was overcooked — five whistles instead of four because I'd been on the phone and lost count. The tamarind was too sour. The whole thing tasted like a mistake with good intentions.
 
@@ -2569,7 +2532,7 @@ I fell asleep at 10 PM. The earliest I'd slept in years. No phone. No calls. No 
 
 ---
 
-# Chapter 29: The Truth
+# Chapter 28: The Truth
 
 ---
 
@@ -2694,7 +2657,7 @@ Not release of her. I'll never fully release her. She's in the architecture of w
 
 Release of the story I told myself about her. The villain story. The victim story. The "she used me" story. The "I deserved better" story.
 
-Those stories were true. And they were incomplete. Incomplete truths are a trap. They give you just enough evidence to justify your pain without ever asking you to examine your role in creating it.
+Those stories were true. And they were incomplete.
 
 The full truth, the ugly, messy, both-guilty, both-innocent, impossibly human truth, is the only one worth carrying.
 
@@ -2714,7 +2677,7 @@ The full truth, the ugly, messy, both-guilty, both-innocent, impossibly human tr
 
 ---
 
-# Chapter 30: Forty
+# Chapter 29: Forty
 
 ---
 
@@ -2810,10 +2773,6 @@ Not because the window man is better. He's not. He's just different. The thirty-
 
 *"My mother called. Meera texted. Priya didn't. My TikTok audience sent digital roses. I made biryani and drank wine and looked at a mountain."*
 
-*"The man I was at thirty-two would not recognize the man I am at forty. And that's the whole point."*
-
-*"At thirty-two, I was hungry. For love, for touch, for validation, for someone to tell me I was worth crossing an ocean for. I found all of it. In a woman. In a phone. In hotel rooms and midnight calls and the word 'soon' repeated until it lost all meaning."*
-
 *"At forty, I'm full. Not because I got what I wanted. Because I stopped wanting it from other people."*
 
 *"I still love Meera. I'll always love Meera. But the love is different now. It doesn't pull. It doesn't ache. It doesn't wake me up at 2 AM to check if she's online. It sits in my chest like a fact. Like the mountains. Present. Massive. Not going anywhere. Not demanding anything."*
@@ -2841,7 +2800,7 @@ The mountains were still there in the dark. I couldn't see them. I didn't need t
 
 ---
 
-# Chapter 31: The Friend
+# Chapter 30: The Friend
 
 ---
 
@@ -2915,6 +2874,8 @@ Halfway through, Sameer looks up and says, as if answering a question no one has
 
 I didn't come here to ask you about your shit, ya. I came because Karthik's kid's first birthday is in Syosset and my layover is six hours and if I go sit in SEA-TAC I will eat that entire Shake Shack, and you live eighteen minutes from the airport, and your mom called my mom.
 
+Karthik. The gym trainer. The name I'd turned into a threat, a rival, a reason to spiral. The man whose existence had been enough to detonate a five-year relationship. He had a kid now. He'd always just been a guy at a gym.
+
 Ari says: my mom called your mom.
 
 Sameer says: aunty called amma. yes.
@@ -2968,7 +2929,7 @@ Then he calls his mother.
 
 ---
 
-# Chapter 32: The King
+# Chapter 31: The King
 
 ---
 
@@ -3044,38 +3005,6 @@ Not "I love this person." Not "I'm proud of this person." Respect. The kind you 
 
 ---
 
-**Moment 4: The Voice Note He Didn't Send**
-
-December 2026. Two years in the apartment. He recorded a voice note. Not for Meera. Not for Priya. For himself.
-
----
-
-**Voice Note — Self**
-*December 15, 2026, 9:22 PM*
-*Duration: 1:14*
-
-"You were right about the facts. And you were the worst — okay, start over."
-
-*[pause]*
-
-"Both things are true. You were right and you were the worst version of yourself. In the same breath. That's — yeah."
-
-*[long exhale]*
-
-"I'm not that man anymore. Not because I — not because I decided. Because I did the work. The boring work. Sitting alone. Not reaching for —"
-
-*[pause]*
-
-"The silence fills itself now. That's the thing. It actually fills itself."
-
----
-
-He never sent it. It lived in his voice memos between a grocery list and a song idea he'd hummed in the shower. An unremarkable file.
-
-But he listened to it sometimes. Late at night. When the old hunger whispered. He'd play it and hear his own voice — calm, tired, honest — and remember that the man speaking had been earned.
-
----
-
 **Screen Time Report — Ari's iPhone**
 *February 2027*
 
@@ -3087,7 +3016,7 @@ Social media total: 0 min
 
 ---
 
-Zero minutes of social media. Not as deprivation. As completion. The man who'd built a life on being seen had become a man who didn't need to be seen. The man who'd performed for three hundred strangers every night had stopped performing. Not because the performance wasn't good. Because it wasn't necessary.
+Zero minutes of social media. The man who'd built a life on being seen had become a man who didn't need to be seen.
 
 ---
 
@@ -3108,7 +3037,7 @@ I don't reach for my phone.
 
 ---
 
-# Chapter 33: Abundance
+# Chapter 32: Abundance
 
 ---
 
@@ -3155,34 +3084,9 @@ I'm writing this last chapter from a different house.
 
 Same city. Same rain. Same Pacific Northwest grey that would depress anyone who didn't understand that grey is just every color being held at once. But a different house. A different life. A different man sitting in a different chair, looking at the same mountains through a different window.
 
-Priya and I separated. Quietly. The way our marriage had lived: without drama, without explosion, without the cinematic confrontation that would make a better chapter. We sat at a kitchen table and said the words we'd both been carrying for years, and the words were simple: this isn't working. It hasn't been working. We both deserve more.
+Priya and I separated. Quietly. We sat at a kitchen table and said the words we'd both been carrying for years.
 
 She didn't cry. I didn't cry. We'd used up our tears on other people.
-
----
-
-**Text Messages — Ari to Priya**
-*2026*
-
-**Ari:** I'm sorry. For everything I didn't give you. For everything I gave someone else.
-
-**Priya:** I know.
-
-**Ari:** You deserved a husband who was present. I wasn't.
-
-**Priya:** No. You weren't.
-
-**Ari:** I can't undo it. But I can stop pretending it didn't happen.
-
-**Priya:** That's all I ever wanted. For you to stop pretending.
-
----
-
-She knew. Of course she knew. Not the details . Not India, not the calls, not the baby that wasn't mine, not the panties in a DHL envelope. But the absence. The man-shaped hole in the marriage where a husband should have been. She'd lived inside that hole for years, quietly, with a dignity I didn't deserve and a patience I'll never fully understand.
-
-Priya is not the villain of this story. She never was. She was the person I hurt most by loving someone else, and she bore that hurt without ever making it my problem. That's not coldness. That's not distance. Love so quiet it's almost invisible, the love of a woman who stayed not because she was trapped but because she hoped, year after year, that the man she married would come back.
-
-He didn't. And eventually, she stopped waiting too.
 
 ---
 
@@ -3296,7 +3200,7 @@ My thumb sat on that green button for eight seconds. I counted.
 
 Then I put the phone down. Face down. On the counter.
 
-Made myself a cup of chai. Bad chai — too much sugar, not enough cardamom, my mother would be horrified. Drank it standing at the kitchen window, looking at Rainier, which wasn't visible because it was raining, because this is Seattle and the mountain is always there whether you can see it or not.
+Made myself a cup of chai. Bad chai — too much sugar, not enough cardamom, my mother would be horrified. Drank it standing at the kitchen window, looking at where the mountain should have been. It was raining. The window held nothing but grey. I stood there anyway.
 
 That's abundance. Not the elimination of hunger. The choice, every single time, to set the phone down anyway.
 
@@ -3306,18 +3210,11 @@ But last Tuesday, I didn't.
 
 ---
 
-*"The best love stories aren't written. They're remembered."*
-
 ---
 
+## Author's Note
 
----
+*For everyone who's been the villain of someone else's story and didn't know it yet.*
 
-
-
----
-
-*The best love stories aren't written. They're remembered.*
-
-— A. Rathna
+— A. R.
 
