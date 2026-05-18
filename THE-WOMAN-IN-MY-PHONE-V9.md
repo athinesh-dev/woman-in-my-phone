@@ -4,10 +4,6 @@
 
 ---
 
-*"The best love stories aren't written. They're remembered."*
-
----
-
 ## Contents
 
 **PART ONE: THE HUNGER** · *July 2018*
@@ -3067,42 +3063,7 @@ Suspicion doesn't need certainty. Ten percent is enough. You don't need to fully
 
 ---
 
-The months blurred. January became March became June became September. The calls continued. The intimacy continued. The "when?" continued. The "soon" continued.
-
-She was mine every night and his every morning. I lived for the overlap and died in the gap.
-
-I was hers. Completely, desperately, foolishly. In a way that was starting to cost me more than I could afford.
-
-But I couldn't stop. Because stopping meant going back to the house. The counter. The keys. The wife facing the wall.
-
-
-
----
-
-**WhatsApp Messages**
-*December 2021, 11:59 PM PST*
-
-**Meera:** Happy New Year, my love. ❤️ This is our year.
-
-**Ari:** You said that last year.
-
-**Meera:** This time I mean it.
-
-**Ari:** You said that too.
-
-**Meera:** ...
-
-**Meera:** I deserve that.
-
-**Ari:** No. You don't. I'm sorry. Happy New Year. I love you.
-
-**Meera:** I love you too. I promise. This year.
-
----
-
-2022 would be different. She promised. And I believed her. Because the only thing more powerful than a pattern is the hope that this time, the pattern will break.
-
-It didn't.
+She was mine every night and his every morning. I lived for the overlap and died in the gap. The months blurred. The "when?" continued. The "soon" continued. And I couldn't stop, because stopping meant going back to the house. The counter. The keys. The wife facing the wall.
 
 ---
 
@@ -4398,6 +4359,14 @@ Neither of us was a ship.
 
 ---
 
+I called her. That night, the night I opened the calculator, I called her four times. The first three rang out. The fourth went straight to voicemail — she'd turned her phone off.
+
+I sat on the kitchen floor with the phone in my hand and replayed her last voice note. The one from three days before. Her voice, soft, tired, saying *I love you, I miss you, call me tomorrow.* I played it twice. Three times. Four. Each repetition made the voice sound less like love and more like a lock. Like something designed to keep me where I was.
+
+I opened the voice recorder. Recorded something. Played it back. Deleted it. Recorded again. Deleted. The third time I didn't delete. The third time I hit send at 2:33 AM because if I listened to it one more time I'd lose the nerve, and I didn't want to lose the nerve. I wanted her to hear what five years of believing someone sounds like when the belief finally dies.
+
+---
+
 **WhatsApp Voice Note — Ari to Meera**
 *May 2023, 2:33 AM PST*
 *Duration: 3:47*
@@ -5363,7 +5332,7 @@ She knew the way a woman knows.
 
 But she'd known something was wrong long before the cologne. Years before.
 
-A Sunday in October 2016. They'd been married five years. The girls were small — Anika was four, Nila was eighteen months. Ari was on the couch with his laptop. Priya was in the kitchen making rasam. The girls were in the playroom watching something with too much music.
+A Sunday in October 2016. They'd been married five years. The girls were small — Anika was four, Isha was eighteen months. Ari was on the couch with his laptop. Priya was in the kitchen making rasam. The girls were in the playroom watching something with too much music.
 
 She walked out to ask him a question. *Did you renew the car tabs?* Something normal.
 
@@ -6334,6 +6303,54 @@ Zero is not empty. Zero is the space where something new can be built.
 I didn't know what I was building yet. I just knew I was done borrowing other people's structures and calling them home.
 
 I fell asleep at 10 PM. The earliest I'd slept in years. No phone. No calls. No screen. Just dark and quiet and a body that had finally stopped running.
+
+---
+
+**Third Weekend**
+
+Anika came over on a Saturday. Priya dropped her off. No eye contact, no words beyond "I'll pick her up at six." The car pulled away and my daughter stood in the doorway of my apartment with her backpack and looked at the space the way you look at a hotel room — assessing, not arriving.
+
+She was twelve. Old enough to know things she'd never been told. Old enough to have spent a year watching her father sit on a couch staring at a phone instead of looking at her. Old enough to have poured her own cereal and carried it to her room while I disappeared into someone else's life.
+
+"It's small," she said.
+
+"It is."
+
+"Where's my room?"
+
+I showed her the couch. The blanket I'd folded. The pillow from my bed. She didn't complain. She put her backpack down and sat on the couch and looked at me and said: "Are you better now?"
+
+Not *are you okay.* Better. The word of someone who'd known I was sick.
+
+"I'm trying to be."
+
+She nodded. Pulled out her homework. Spread it on the floor because I didn't have a table. I sat on the kitchen floor — my spot now, apparently — and watched her do math problems on the carpet, and the distance between us was four feet and twelve months of absence I couldn't unlive.
+
+After an hour she looked up. "Dad?"
+
+"Yeah."
+
+"I heard you. On the phone. At night. For a long time."
+
+My chest went cold. "How much did you hear?"
+
+"Not words. Just... you had a voice you used. Late. A different voice than the one you used with us." She looked back at her homework. "I'm not asking. I just wanted you to know I knew."
+
+I sat with that. The weight of it. My twelve-year-old daughter, who'd been awake in her room down the hall while I whispered to a woman on the other side of the world, who'd heard the timbre of a life I'd hidden from everyone, who'd carried that knowledge silently for a year while I was too consumed to notice.
+
+"I'm sorry," I said.
+
+She didn't look up. "It's okay. You're here now."
+
+She went back to her homework. I went back to the kitchen floor. The apartment was quiet. The good quiet. The kind where two people aren't performing anything. Just existing in the same space, rebuilding what they can.
+
+At six, Priya's car pulled up. Anika packed her bag. At the door she turned and said, casually, like it cost her nothing: "Your sambar was bad, by the way. Next time use less tamarind."
+
+She'd tasted it. While I wasn't looking. My kid had tasted my terrible sambar and remembered it a week later and offered me the correction like a gift.
+
+"Less tamarind," I said. "Got it."
+
+She smiled. Small. Real. Then she was gone.
 
 ---
 
