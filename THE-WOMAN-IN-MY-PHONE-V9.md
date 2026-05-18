@@ -1208,6 +1208,8 @@ Two weeks. I had two weeks to construct a lie convincing enough to cover a trip 
 
 I told Priya I had a work conference in San Francisco. Three days. She didn't ask which conference. Didn't ask the hotel name. Didn't ask why I was packing a suit I never wore. She just said "okay," like a door closing softly.
 
+But she ironed my shirts. I found them the next morning, pressed and folded on the guest bed, the way she used to do before trips when things were still good between us. She hadn't ironed my shirts in two years. She didn't say a word about it. Just left them there, creased and warm, and went to bed.
+
 I told my manager I needed personal days. Family matter. He approved it without questions because I'd never taken a sick day in two years and the guilt of that streak bought me three days of silence.
 
 The lies were easy. That should have bothered me more than it did.
