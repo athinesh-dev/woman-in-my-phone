@@ -6799,16 +6799,6 @@ It didn't feel like declining oxygen. It felt like choosing sleep.
 
 ---
 
-**Moment 3: The Mirror**
-
-July 2025. I was brushing my teeth. Looking at my face. The usual face. Forehead lines. Jaw that was sharper than it used to be — I'd been eating less, moving more, not because of a fitness plan but because cooking for one means smaller portions and walking is free.
-
-I looked at my face and I thought: *I respect this person.*
-
-Not "I love this person." Not "I'm proud of this person." Respect. The kind you give someone who's made mistakes and stopped making excuses for them.
-
----
-
 **Screen Time Report — Ari's iPhone**
 *February 2027*
 
