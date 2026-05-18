@@ -31,30 +31,29 @@
 
 13. The Call
 14. The Pattern
-15. The Second Crossing
-16. The Discovery
-17. Day Seven
+15. The Discovery
+16. Day Seven
 
 **PART FIVE: THE UNRAVELING** · *2022 – 2023*
 
-18. The Suspicion
-19. The Break
-20. The Edge
-21. The Bathroom Floor ★
-22. The Cage
+17. The Suspicion
+18. The Break
+19. The Edge
+20. The Bathroom Floor ★
+21. The Cage
 
 **PART SIX: ABUNDANCE** · *2023 – 2027*
 
-23. Priya ★
-24. Priya After ★
-25. The Leaving
-26. The First Apartment ★
-27. The Empty House
-28. The Truth
-29. Forty
-30. The Friend
-31. The King
-32. Abundance
+22. Priya ★
+23. Priya After ★
+24. The Leaving
+25. The First Apartment ★
+26. The Empty House
+27. The Truth
+28. Forty
+29. The Friend
+30. The King
+31. Abundance
 
 *★ Meera / Priya POV*
 
