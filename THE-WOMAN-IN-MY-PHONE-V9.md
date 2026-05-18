@@ -1680,9 +1680,9 @@ The house smelled like sambar. Her mother-in-law had been cooking. That was the 
 
 "Traffic was bad," she said. The lie she'd prepared. She'd told him she was visiting her college friend in Chennai. Three days. He hadn't asked which friend. Hadn't asked for the address. Hadn't offered to drive her. He'd said "okay" and gone back to his cricket, and she'd packed a bag with trembling hands and walked out of the house carrying three days' worth of clothes and seven months' worth of longing.
 
-"Amma made sambar," he said. "Eat."
+"Amma made sambar," he said. "Eat." Then, turning to his mother in the kitchen, louder, warmer: "She's back, Amma. Give her the good plate." The voice he used for his mother was a different man entirely. Soft. Doting. The perfect son performing the perfect marriage for the only audience he cared about impressing.
 
-Not "are you hungry." Not "how was your trip." Not "I missed you." Just: eat. A command dressed as information.
+Not "are you hungry." Not "how was your trip." Not "I missed you." Just: eat. A command dressed as information, wrapped in the theatre of a man who remembers his manners when someone is watching.
 
 "I ate on the way," she said. Another lie. She hadn't eaten since the hotel. Since Ari fed her gulab jamun with his fingers at 2 AM and she'd laughed so hard the syrup dripped down her chin and he'd kissed it off and she'd thought: this is what happy tastes like. Sugar and someone else's mouth.
 
