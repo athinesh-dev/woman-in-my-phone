@@ -2072,7 +2072,7 @@ I didn't see that then. I only see it now.
 
 ---
 
-**The baby was born in late 2019.**
+**The baby was born in mid-2019.**
 
 She sent me a photo. A tiny face. Dark hair. Closed fists. A newborn that looks like every other newborn. Ancient and new at the same time. Wrinkled like an old man who's seen too much. Carrying the features of ancestors neither parent has met, looking vaguely offended at having been born, the way all Indian babies look for the first forty-eight hours, as though they'd been perfectly comfortable where they were and didn't appreciate the eviction.
 
@@ -2081,7 +2081,7 @@ I stared at that photo for an hour. Looking for me. Looking for her. Looking for
 ---
 
 **WhatsApp Messages**
-*Late 2019*
+*July 2019*
 
 **Meera:** [Baby photo]
 
@@ -2636,7 +2636,7 @@ She didn't ghost him. She survived him.
 
 ---
 
-It started in December.
+It started in October.
 
 The baby was three months old. Colicky. Screaming from 7 PM to midnight every night with the regularity of a factory alarm. Meera hadn't slept more than two consecutive hours since the birth. Her body was still leaking. Her nipples were cracked. Her stitches hadn't healed properly and nobody told her that was abnormal because women in her family didn't discuss what happened below the waist. You pushed. You bled. You recovered. You didn't complain.
 
@@ -3147,7 +3147,7 @@ Her answer, every week, in different words but the same meaning: "Not yet."
 
 ---
 
-I believed her. I did. Ninety percent of me believed her completely. But the other ten percent, the part that remembered the pregnancy, the timing, the "it could be yours" that turned out to be a lie, sat in the back of my mind like a pilot light. Always on. Always warming the gas.
+I believed her. I did. Ninety percent of me believed her completely. But the other ten percent, the part that remembered the pregnancy, the timing, the "it could be yours" that I'd never verified, sat in the back of my mind like a pilot light. Always on. Always warming the gas.
 
 Suspicion doesn't need certainty. Ten percent is enough. You don't need to fully doubt someone to poison the relationship. You just need a whisper. A flicker. The smallest "what if" that plays on a loop at 3 AM when you're alone and she's in a house with a man who sleeps next to her and you don't.
 
@@ -4151,7 +4151,7 @@ It mattered because I needed her to be mine. Completely. Entirely. Not shared. N
 
 *"This isn't love anymore. This is surveillance with a heartbeat."*
 
-*"But I can't stop. Because the one time I trusted completely — the baby, the forehead, 'it could be yours' . It turned out to be a lie. Maybe not a malicious lie. Maybe a hopeful one. But still a lie. And once you've been lied to by the person you trust most, you start auditing everything."*
+*"But I can't stop. Because the one time I trusted completely — the baby, the forehead, 'it could be yours' — I never checked. I never did the math. I chose not to. And now I can't stop wondering what else I've chosen not to see."*
 
 *"I'm auditing her. And she can feel it. And it's killing us."*
 
@@ -4432,11 +4432,11 @@ I put the phone down. Then I picked it up again, opened my photos, and scrolled.
 
 I had a folder. I'd never named it. iOS had named it for me — *Recent.* But inside the Recents was a buried sub-album I'd built over four years, every photo Meera had ever sent me of the baby. The baby I'd called my maybe-daughter. The baby I'd sent ultrasound images of to my own contacts under the contact name *medical, do not delete.* The baby whose first laugh I'd heard through a crackling 3G connection at 2 AM Seattle time and who I'd told my therapist about, when I finally got a therapist, before I told her about Meera.
 
-The first ultrasound was dated. December 14, 2019. Twelve weeks. The next photo, four months later, was Nila in a pink swaddle. April 2020. I scrolled and scrolled. Each photo was a stop on a calendar I'd never made explicit.
+The first ultrasound was dated. January 5, 2019. Twelve weeks. The next photo, six months later, was Nila in a pink swaddle. July 2019. I scrolled and scrolled. Each photo was a stop on a calendar I'd never made explicit.
 
-I opened the calculator app. I had not opened the calculator app in months. December 14 minus twelve weeks. The pregnancy had started in late September 2019.
+I opened the calculator app. I had not opened the calculator app in months. January 5 minus twelve weeks. The pregnancy had started in mid-October 2018.
 
-I closed the calculator. Opened my notes. Found the entry from September 2019. The flight to India had been booked for the second crossing — except the second crossing happened in April 2022. Not 2019. In September 2019 I had not been in India. In September 2019 I had been in Seattle on a couch. Had been in Seattle for fourteen months by then. Had not touched her since the first crossing in March 2019, which was eight months before conception.
+I closed the calculator. Opened my notes. Found the entry from October 2018. In October 2018 I had not been in India. In October 2018 I had never been to India. Had never touched her. Would not touch her for another five months. The first crossing was February 2019. The conception was four months before I ever set foot in that hotel room.
 
 The math had never been mine. The math had never been mine and I had known it. The math had been on my phone in a calculator app for four years and I had simply not opened the app.
 
@@ -5564,7 +5564,7 @@ He didn't want to be here. He hadn't wanted to be here for years. The woman, who
 
 ---
 
-Priya married Ari when she was twenty-two. A good match. Good family. Good job. Good-looking in the way Tamil mothers approve of: fair enough, tall enough, American salary. Her parents were proud. His parents were proud. The wedding was three days of silk and sandalwood and promises made in a language older than anyone in the room.
+Priya married Ari when she was twenty-four. A good match. Good family. Good job. Good-looking in the way Tamil mothers approve of: fair enough, tall enough, American salary. Her parents were proud. His parents were proud. The wedding was three days of silk and sandalwood and promises made in a language older than anyone in the room.
 
 She'd loved him. That part gets lost in his version of the story, and she understood why. In his telling, the marriage was dead from the start. Cold bed. Wall-facing. Silence. And that's true. By 2018, that's what the marriage was. But marriages don't start dead. They die over time, in small ways, through a thousand choices that nobody remembers making.
 
@@ -5756,7 +5756,7 @@ And then silence. The same silence that had defined them for years, but differen
 
 She cried that night. Alone. In the bed that was now just hers. Not because the marriage was over. Because she'd waited so long. Because the years between knowing and acting were years she'd never get back. Because the woman who'd faced the wall at year four could have walked out the door, and instead she'd stayed for eight more years of sambar and silence and sleeping next to a man who whispered someone else's name into a phone.
 
-She cried for the twenty-two-year-old bride who'd believed in silk and sandalwood. For the woman who'd tried lingerie and felt foolish. For the engineer who built systems that never failed and couldn't fix her own marriage. For the daughter who'd carry her parents' shame like a second skin.
+She cried for the twenty-four-year-old bride who'd believed in silk and sandalwood. For the woman who'd tried lingerie and felt foolish. For the engineer who built systems that never failed and couldn't fix her own marriage. For the daughter who'd carry her parents' shame like a second skin.
 
 She cried for Ari, too. Because he wasn't a villain. He was a man who'd married the wrong woman and punished them both for it for twelve years. He'd never been cruel. Never stopped providing. Never forced her for anything. He'd simply... left. Emotionally. Spiritually. And eventually, by the time she asked him to go, physically.
 
@@ -6128,7 +6128,7 @@ She is extremely good at it.
 
 Her co-workers do not know she is extremely good at it, because being extremely good at a small job is invisible. She likes this. She has been visible enough for a lifetime.
 
-Nila is three years old and she sleeps in the room next to hers, which is also the only other room, which is a closet with a window. She has made the closet into a galaxy — glow-in-the-dark stars on the ceiling, a nightlight shaped like a half-moon, a small bookshelf with seventeen books Nila has memorized. She calls it her spaceship. She tells Meera, every night, as she tucks her in: amma, the spaceship is taking off. Meera says, every night: safe travels, pilot. She closes her eyes. She sleeps.
+Nila is five years old and she sleeps in the room next to hers, which is also the only other room, which is a closet with a window. She has made the closet into a galaxy — glow-in-the-dark stars on the ceiling, a nightlight shaped like a half-moon, a small bookshelf with seventeen books Nila has memorized. She calls it her spaceship. She tells Meera, every night, as she tucks her in: amma, the spaceship is taking off. Meera says, every night: safe travels, pilot. She closes her eyes. She sleeps.
 
 This ritual cost her a marriage.
 
@@ -6152,7 +6152,7 @@ Meera does not cry in front of her. She has a rule.
 
 She breaks the rule.
 
-She lies down on the floor of the spaceship next to Nila's small bed and she cries and she says, to the glow-in-the-dark ceiling: No. No, pilot. No, no, no. It is because of me. It is because I had to learn how to be a person who could be your mother and not disappear. Do you understand? Nila does not understand. She is three. She says: okay, amma. She pats Meera's hair like Meera is the child. Meera lies there until Nila sleeps.
+She lies down on the floor of the spaceship next to Nila's small bed and she cries and she says, to the glow-in-the-dark ceiling: No. No, pilot. No, no, no. It is because of me. It is because I had to learn how to be a person who could be your mother and not disappear. Do you understand? Nila does not understand. She is five. She says: okay, amma. She pats Meera's hair like Meera is the child. Meera lies there until Nila sleeps.
 
 Then she gets up, washes her face, goes to the galley kitchen, and makes herself the second bad coffee of the day. She drinks it standing. She does not cry again.
 
@@ -6253,9 +6253,9 @@ The door closed behind me with a sound that should have been louder. Twelve year
 
 The apartment was seven hundred square feet. One bedroom, one bathroom, a kitchen that connected to a living room through an archway that the listing called "open concept" and reality called "small." The carpet was beige. The walls were white. The previous tenant had left a nail in the wall above where a TV must have hung, and the nail's shadow was a small dark rectangle, the ghost of someone else's life.
 
-I sat on the guest room mattress, which was now the only mattress, which was on the floor because the bed frame hadn't been assembled yet, and I looked at the apartment and I thought: this is what forty looks like.
+I sat on the guest room mattress, which was now the only mattress, which was on the floor because the bed frame hadn't been assembled yet, and I looked at the apartment and I thought: this is what thirty-seven looks like.
 
-Not forty with a wife and a house and the infrastructure of a life that other people could see and say "he's doing well." Forty in an apartment with beige carpet and a nail in the wall and six boxes of books I hadn't read since my twenties but couldn't bring myself to donate because they were the only things in the apartment that had history.
+Not thirty-seven with a wife and a house and the infrastructure of a life that other people could see and say "he's doing well." Thirty-seven in an apartment with beige carpet and a nail in the wall and six boxes of books I hadn't read since my twenties but couldn't bring myself to donate because they were the only things in the apartment that had history.
 
 ---
 
@@ -6297,7 +6297,7 @@ I stood in the rice aisle for four minutes. Holding a five-pound bag. Doing the 
 
 The math was simple. The math was unbearable.
 
-I bought the five-pound bag. And a pan. And the smallest container of sambar powder they had, because I was going to learn to make sambar, because my mother had made sambar and Priya had made sambar and Meera had made sambar and every woman in my life had made sambar and I had never made sambar and I was forty years old and it was time.
+I bought the five-pound bag. And a pan. And the smallest container of sambar powder they had, because I was going to learn to make sambar, because my mother had made sambar and Priya had made sambar and Meera had made sambar and every woman in my life had made sambar and I had never made sambar and I was thirty-seven years old and it was time.
 
 ---
 
@@ -6350,7 +6350,7 @@ Not for comfort. For instructions. She was seventy-two and lived in Pondicherry 
 
 "Amma. How do you make sambar?"
 
-Silence. The specific silence of a Tamil mother processing the fact that her forty-year-old son, who has been eating sambar for four decades, does not know how to make sambar.
+Silence. The specific silence of a Tamil mother processing the fact that her thirty-seven-year-old son, who has been eating sambar for three and a half decades, does not know how to make sambar.
 
 "You don't know how to make sambar?"
 
@@ -6384,7 +6384,7 @@ Another silence. Longer. The kind where a mother does the math and arrives at th
 
 "Aiyoo."
 
-She walked me through it. Twenty-five minutes of instruction, delivered with the patience of a woman who had waited forty years for this phone call and the exasperation of a woman who couldn't believe it had taken this long.
+She walked me through it. Twenty-five minutes of instruction, delivered with the patience of a woman who had waited thirty-seven years for this phone call and the exasperation of a woman who couldn't believe it had taken this long.
 
 The sambar was terrible. Watery. Under-salted. The dal was overcooked — five whistles instead of four because I'd been on the phone and lost count. The tamarind was too sour. The whole thing tasted like a mistake with good intentions.
 
@@ -6765,6 +6765,8 @@ They sit for two hours. Sameer tells Ari, in small unsorted doses, about his fat
 Halfway through, Sameer looks up and says, as if answering a question no one has asked:
 
 I didn't come here to ask you about your shit, ya. I came because Karthik's kid's first birthday is in Syosset and my layover is six hours and if I go sit in SEA-TAC I will eat that entire Shake Shack, and you live eighteen minutes from the airport, and your mom called my mom.
+
+Karthik. The gym trainer. The name I'd turned into a threat, a rival, a reason to spiral. The man whose existence had been enough to detonate a five-year relationship. He had a kid now. He'd always just been a guy at a gym.
 
 Ari says: my mom called your mom.
 
