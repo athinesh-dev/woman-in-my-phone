@@ -21,45 +21,44 @@
 
 5. The Mirror
 6. The Crossing
-7. The First Night
-8. Three Days
-9. The Return ★
+7. Three Days
+8. The Return ★
 
 **PART THREE: THE EARTHQUAKE** · *March 2019 – 2020*
 
-10. The Earthquake
-11. The Silence
-12. The Other Side of Silence ★
-13. Meera's Year ★
+9. The Earthquake
+10. The Silence
+11. The Other Side of Silence ★
+12. Meera's Year ★
 
 **PART FOUR: THE RETURN** · *2021 – 2022*
 
-14. The Call
-15. The Pattern
-16. The Second Crossing
-17. The Discovery
-18. Day Seven
+13. The Call
+14. The Pattern
+15. The Second Crossing
+16. The Discovery
+17. Day Seven
 
 **PART FIVE: THE UNRAVELING** · *2022 – 2023*
 
-19. The Suspicion
-20. The Break
-21. The Edge
-22. The Bathroom Floor ★
-23. The Cage
+18. The Suspicion
+19. The Break
+20. The Edge
+21. The Bathroom Floor ★
+22. The Cage
 
 **PART SIX: ABUNDANCE** · *2023 – 2027*
 
-24. Priya ★
-25. Priya After ★
-26. The Leaving
-27. The First Apartment ★
-28. The Empty House
-29. The Truth
-30. Forty
-31. The Friend
-32. The King
-33. Abundance
+23. Priya ★
+24. Priya After ★
+25. The Leaving
+26. The First Apartment ★
+27. The Empty House
+28. The Truth
+29. Forty
+30. The Friend
+31. The King
+32. Abundance
 
 *★ Meera / Priya POV*
 
@@ -1244,109 +1243,6 @@ I'd never been more ready for anything in my life.
 
 ---
 
-**WhatsApp Messages**
-*March 1, 2019 — Day of arrival*
-
-**Ari:** Landed.
-
-**Meera:** I can't breathe.
-
-**Ari:** [Hotel name]. Room 412. I'll be there in an hour.
-
-**Meera:** I'm already in the lobby.
-
----
-
-She was already there. An hour early. Sitting in the lobby of a hotel in her own city, waiting for a man she'd loved for seven months and never touched.
-
----
-
-**Hotel — Room 412**
-
-"Hi," she said.
-
-The same "hi" from the first video call. But this time I could hear it without speakers. This time the sound traveled through actual air, not fiber optic cable. This time it landed on my ears, not my earbuds.
-
-"Hi," I said.
-
-I crossed the room. I held her.
-
----
-
-Not a hug. The way you hold someone when holding them is the only thing keeping both of you upright.
-
-She was shaking.
-
-I kissed her neck. Softly. Just below her ear. The spot I'd talked about in hundreds of video calls. The spot I'd described touching while she came from my words alone. And now my actual lips were on her actual skin, and the reality of it was so much bigger than the fantasy that we both started crying.
-
-Seven months of screens dissolved in a single embrace.
-
----
-
-I didn't push. I didn't rush. I didn't let the seven months of wanting override the awareness of what she'd been through.
-
-This woman's body had been used as a thing. Grabbed. Forced. Entered without permission. Her experience of male hands was violence. Now my hands were on her, and I needed them to feel different. Not just different from her husband. Different from every man who'd ever treated a woman's body as something to take.
-
-So I waited.
-
-We lay on the bed. Clothed. Just holding each other. Her head on my chest. My hand in her hair. The sound of her breathing slowing from panicked to peaceful.
-
-She looked up at me.
-
-"I thought this would be scary," she said. "Being alone with a man in a room."
-
-"Is it?"
-
-She shook her head. "It's the safest I've ever felt."
-
----
-
-Later, I don't know how much later, time had stopped behaving normally. I touched her. Not sexually. Not yet. I ran my hand down her arm. Over her hip. Along the outside of her thigh. Learning her geography through fingertips instead of pixels.
-
-Her breath hitched. Not from fear. From the novelty of being touched by someone who was paying attention. Someone who wasn't rushing toward an ending. Someone for whom the touching itself was the point.
-
-I slid my hand between her thighs. Over her shorts. Over the fabric. I could feel the warmth of her through the cotton. I could feel her body responding, not to pressure, not to force, but to the permission I was offering without words: *this is yours. This pleasure belongs to you. I'm just here to help you find it.*
-
-She pressed against my hand. A small movement. Almost involuntary. Like her body was answering a question before her mind could debate it.
-
-"Is this okay?" I whispered.
-
-"Yes," she breathed. "Please don't stop."
-
-I didn't stop.
-
-I rubbed her slowly. Over her panties. Not pulling them aside. Not rushing to skin. Just pressure. Warmth. Rhythm. The patience of a man who understood that for this woman, patience was a revolutionary act.
-
-She came. Hard. Harder than I'd ever seen on video. Her whole body seized, then released, then seized again. Her hand gripping my forearm so tight her nails left marks. Her mouth open. The sound, God, the sound, a cry that was seven months of longing and years of violation and one perfect moment of being touched by someone who gave a damn.
-
-She came, and I held her, and she cried into my chest, and I didn't say a word. Because there were no words for this. There was only the fact of it: a woman, in a man's arms, discovering for the first time that touch could be a gift instead of a theft.
-
----
-
-**WhatsApp Message — Meera to her best friend**
-*(She showed me this later)*
-
-**Meera:** I think I just understood what sex is supposed to feel like.
-
-**Friend:** What happened?? Tell me everything
-
-**Meera:** He didn't even take my clothes off. And it was more intimate than anything that's ever happened to me.
-
----
-
-Day one ended with her asleep on my chest. Still clothed. Still crying, even in sleep, small involuntary tears that leaked from the corners of her closed eyes like her body was releasing poison. I didn't sleep. I just held her and listened to her breathe and thought:
-
-*I flew eight thousand miles for this. And I would fly twelve thousand more.*
-
----
-
-
----
-
-# Chapter 7: The First Night
-
----
-
 **Uber Receipt**
 *March 1, 2019*
 
@@ -1368,7 +1264,6 @@ Not because I didn't want to see her. Because I wanted it too much. My leg was b
 
 He grinned in the rearview mirror. "India doesn't wait for you to come back, sir. She just keeps going."
 
----
 
 The hotel was high-range. Not crowded. Marble floors in the lobby and the man at reception calls you "sir" with genuine warmth and hands you a room key.
 
@@ -1382,12 +1277,38 @@ We are both now standing in the middle of the room.
 
 ---
 
+I crossed the room. I held her.
+
+---
+
+Not a hug. The way you hold someone when holding them is the only thing keeping both of you upright.
+
+She was shaking.
+
+I kissed her neck. Softly. Just below her ear. The spot I'd talked about in hundreds of video calls. And now my actual lips were on her actual skin, and the reality of it was so much bigger than the fantasy that we both started crying.
+
+Seven months of screens dissolved in a single embrace.
+
+---
+
+We lay on the bed. Clothed. Just holding each other. Her head on my chest. My hand in her hair. The sound of her breathing slowing from panicked to peaceful.
+
+She looked up at me.
+
+"I thought this would be scary," she said. "Being alone with a man in a room."
+
+"Is it?"
+
+She shook her head. "It's the safest I've ever felt."
+
+---
 
 But this chapter is about the night. The hours between the hug and falling asleep. The hours nobody writes about because they're not cinematic enough for the highlight reel.
 
 They were the best hours of my life.
 
 ---
+
 
 After the hug, after the crying, after the first kiss that tasted like hotel toothpaste and salt, we did something ordinary.
 
@@ -1522,19 +1443,11 @@ I know this because when I opened my eyes — I'd fallen asleep in the chair, ne
 
 ---
 
-# Chapter 8: Three Days
+# Chapter 7: Three Days
 
 ---
 
 **Hotel Room 412 — Day Two**
-
-She woke up before me.
-
-I know this because when I opened my eyes, she was already looking at me. Not at her phone. Not at the ceiling. At me. Studying my face how I used to study her photos, like she was memorizing something she was afraid she'd lose.
-
-"How long have you been watching me?" I asked.
-
-"Long enough to make sure you're real," she said.
 
 There was already coffee on the bedside table. A small steel tumbler, filter coffee, the kind you can only get in South India, the kind that tastes like someone's grandmother distilled love into a dark liquid and served it in metal because metal is honest. She'd ordered it while I was sleeping. Called room service. Whispered so she wouldn't wake me. Then gotten back into bed and pretended to be asleep so I wouldn't know.
 
@@ -1617,7 +1530,6 @@ Late afternoon. Golden light through the hotel curtains. We were both exhausted 
 Then she pulled me into her. No words. Just her hand on the back of my neck, guiding my mouth to hers, and her body opening, and the slowest, deepest lovemaking of my life. The kind where you don't move so much as breathe together.
 
 She fell asleep inside my arms. I stayed inside her. Neither of us wanted to separate. We'd been separated for seven months by an ocean. Now even an inch felt like too much.
-
 ---
 
 **Day Three**
@@ -1719,7 +1631,7 @@ But this time, the silence had a crack in it. Three days wide. And through that 
 
 ---
 
-# Chapter 9: The Return
+# Chapter 8: The Return
 
 ★ *Meera's POV*
 
@@ -1892,7 +1804,7 @@ She fell asleep in two places at once.
 
 ---
 
-# Chapter 10: The Earthquake
+# Chapter 9: The Earthquake
 
 ---
 
@@ -2116,7 +2028,7 @@ Most deluded, too. But happiness and delusion look exactly the same from the ins
 
 ---
 
-# Chapter 11: The Silence
+# Chapter 10: The Silence
 
 ---
 
@@ -2607,7 +2519,7 @@ Until it isn't.
 
 ---
 
-# Chapter 12: The Other Side of Silence
+# Chapter 11: The Other Side of Silence
 
 ★ *Meera's POV*
 
@@ -2731,7 +2643,7 @@ The ceiling was waiting.
 
 ---
 
-# Chapter 13: Meera's Year ★
+# Chapter 12: Meera's Year ★
 
 ---
 
@@ -2847,7 +2759,7 @@ In the morning, she does not pick up.
 
 ---
 
-# Chapter 14: The Call
+# Chapter 13: The Call
 
 ---
 
@@ -3034,7 +2946,7 @@ Just not fast enough to prevent what came next.
 
 ---
 
-# Chapter 15: The Pattern
+# Chapter 14: The Pattern
 
 ---
 
@@ -3348,7 +3260,7 @@ She squirted three more times that week. Each time less surprised. Each time les
 
 ---
 
-# Chapter 16: The Discovery
+# Chapter 15: The Discovery
 
 ---
 
@@ -3613,7 +3525,7 @@ For the first time, I wasn't just hoping the pattern would break. I was beginnin
 
 ---
 
-# Chapter 17: Day Seven
+# Chapter 16: Day Seven
 
 ---
 
@@ -3890,7 +3802,7 @@ I held it in my fist and let it be enough.
 
 ---
 
-# Chapter 18: The Suspicion
+# Chapter 17: The Suspicion
 
 ---
 
@@ -4231,7 +4143,7 @@ Crowded loneliness in the world.
 ---
 
 
-# Chapter 19: The Break
+# Chapter 18: The Break
 
 ---
 
@@ -4480,7 +4392,7 @@ Neither of us was a ship.
 
 ---
 
-# Chapter 20: The Edge
+# Chapter 19: The Edge
 
 ---
 
@@ -4655,7 +4567,7 @@ Two children now. Both his. Both born inside a marriage that should never have e
 
 ---
 
-# Chapter 21: The Bathroom Floor
+# Chapter 20: The Bathroom Floor
 
 ★ *Meera's POV*
 
@@ -4859,7 +4771,7 @@ She fell asleep to the sound of something she'd survived.
 
 ---
 
-# Chapter 22: The Cage
+# Chapter 21: The Cage
 
 *Two months after Meera's bathroom floor. Bellevue, Washington.*
 
@@ -5413,7 +5325,7 @@ I didn't know yet that a woman was preparing to ask me to leave.
 
 ---
 
-# Chapter 23: Priya
+# Chapter 22: Priya
 
 ★ *Priya's POV*
 
@@ -5786,7 +5698,7 @@ His crime was absence. And her crime was staying in the room where he wasn't.
 
 ---
 
-# Chapter 24: Priya After ★
+# Chapter 23: Priya After ★
 
 ---
 
@@ -5889,7 +5801,7 @@ She goes to the lobby to say good morning.
 
 ---
 
-# Chapter 25: The Leaving
+# Chapter 24: The Leaving
 
 ---
 
@@ -6112,7 +6024,7 @@ She saved herself. I just happened to be watching.
 
 ---
 
-# Chapter 26: The First Apartment ★
+# Chapter 25: The First Apartment ★
 
 ---
 
@@ -6219,7 +6131,7 @@ She is right.
 
 ---
 
-# Chapter 27: The Empty House
+# Chapter 26: The Empty House
 
 ---
 
@@ -6424,7 +6336,7 @@ I fell asleep at 10 PM. The earliest I'd slept in years. No phone. No calls. No 
 
 ---
 
-# Chapter 28: The Truth
+# Chapter 27: The Truth
 
 ---
 
@@ -6569,7 +6481,7 @@ The full truth, the ugly, messy, both-guilty, both-innocent, impossibly human tr
 
 ---
 
-# Chapter 29: Forty
+# Chapter 28: Forty
 
 ---
 
@@ -6692,7 +6604,7 @@ The mountains were still there in the dark. I couldn't see them. I didn't need t
 
 ---
 
-# Chapter 30: The Friend
+# Chapter 29: The Friend
 
 ---
 
@@ -6821,7 +6733,7 @@ Then he calls his mother.
 
 ---
 
-# Chapter 31: The King
+# Chapter 30: The King
 
 ---
 
@@ -6929,7 +6841,7 @@ I don't reach for my phone.
 
 ---
 
-# Chapter 32: Abundance
+# Chapter 31: Abundance
 
 ---
 
