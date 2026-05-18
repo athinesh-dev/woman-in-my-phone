@@ -1,4 +1,9 @@
-# Chapter 18: The Suspicion
+# PART FIVE: THE UNRAVELING
+*2022 – 2023*
+
+---
+
+# Chapter 17: The Suspicion
 
 ---
 
@@ -339,7 +344,7 @@ Crowded loneliness in the world.
 ---
 
 
-# Chapter 19: The Break
+# Chapter 18: The Break
 
 ---
 
@@ -588,7 +593,7 @@ Neither of us was a ship.
 
 ---
 
-# Chapter 20: The Edge
+# Chapter 19: The Edge
 
 ---
 
@@ -763,7 +768,7 @@ Two children now. Both his. Both born inside a marriage that should never have e
 
 ---
 
-# Chapter 21: The Bathroom Floor
+# Chapter 20: The Bathroom Floor
 
 ★ *Meera's POV*
 
@@ -967,7 +972,7 @@ She fell asleep to the sound of something she'd survived.
 
 ---
 
-# Chapter 22: The Cage
+# Chapter 21: The Cage
 
 *Two months after Meera's bathroom floor. Bellevue, Washington.*
 
@@ -1521,7 +1526,7 @@ I didn't know yet that a woman was preparing to ask me to leave.
 
 ---
 
-# Chapter 23: Priya
+# Chapter 22: Priya
 
 ★ *Priya's POV*
 
@@ -1894,7 +1899,7 @@ His crime was absence. And her crime was staying in the room where he wasn't.
 
 ---
 
-# Chapter 24: Priya After ★
+# Chapter 23: Priya After ★
 
 ---
 
@@ -1997,7 +2002,7 @@ She goes to the lobby to say good morning.
 
 ---
 
-# Chapter 25: The Leaving
+# Chapter 24: The Leaving
 
 ---
 
@@ -2220,7 +2225,7 @@ She saved herself. I just happened to be watching.
 
 ---
 
-# Chapter 26: The First Apartment ★
+# Chapter 25: The First Apartment ★
 
 ---
 
@@ -2327,7 +2332,7 @@ She is right.
 
 ---
 
-# Chapter 27: The Empty House
+# Chapter 26: The Empty House
 
 ---
 
@@ -2502,6 +2507,8 @@ It was the best meal I'd had in months.
 
 Not because it was good. Because I'd made it. Because my mother's voice had guided my hands. Because the kitchen smelled like something I'd produced, not something I'd been served. Because for the first time in my adult life, I was feeding myself. Literally. Metaphorically. A man sitting on a kitchen floor eating his own terrible sambar, and nobody was watching, and nobody was judging, and the silence was empty, and the empty silence was okay.
 
+This is what leaving home does. You carry the culture in your accent and your taste buds but you leave behind the competence. Every NRI man I know can name his mother's sambar but not one of us learned to make it before we left. We outsourced the labor to wives we married partly because they could replicate the taste. Then we blamed the marriage for feeling transactional. I'd built my entire adult life on the assumption that someone else would do the feeding — Priya first, then Meera through a screen — and called that love. Sitting on this floor with a bowl of bad sambar was the first time I'd fed myself without asking a woman to hold the spoon.
+
 ---
 
 **WhatsApp — Drafts (never sent)**
@@ -2532,7 +2539,7 @@ I fell asleep at 10 PM. The earliest I'd slept in years. No phone. No calls. No 
 
 ---
 
-# Chapter 28: The Truth
+# Chapter 27: The Truth
 
 ---
 
@@ -2677,7 +2684,7 @@ The full truth, the ugly, messy, both-guilty, both-innocent, impossibly human tr
 
 ---
 
-# Chapter 29: Forty
+# Chapter 28: Forty
 
 ---
 
@@ -2800,7 +2807,7 @@ The mountains were still there in the dark. I couldn't see them. I didn't need t
 
 ---
 
-# Chapter 30: The Friend
+# Chapter 29: The Friend
 
 ---
 
@@ -2929,7 +2936,7 @@ Then he calls his mother.
 
 ---
 
-# Chapter 31: The King
+# Chapter 30: The King
 
 ---
 
@@ -2995,16 +3002,6 @@ It didn't feel like declining oxygen. It felt like choosing sleep.
 
 ---
 
-**Moment 3: The Mirror**
-
-July 2025. I was brushing my teeth. Looking at my face. The usual face. Forehead lines. Jaw that was sharper than it used to be — I'd been eating less, moving more, not because of a fitness plan but because cooking for one means smaller portions and walking is free.
-
-I looked at my face and I thought: *I respect this person.*
-
-Not "I love this person." Not "I'm proud of this person." Respect. The kind you give someone who's made mistakes and stopped making excuses for them.
-
----
-
 **Screen Time Report — Ari's iPhone**
 *February 2027*
 
@@ -3037,7 +3034,7 @@ I don't reach for my phone.
 
 ---
 
-# Chapter 32: Abundance
+# Chapter 31: Abundance
 
 ---
 
@@ -3218,3 +3215,6 @@ But last Tuesday, I didn't.
 
 — A. R.
 
+
+---
+*End of Part 2*
