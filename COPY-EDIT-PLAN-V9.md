@@ -109,3 +109,17 @@ Single diff at the end. Not chapter-by-chapter. Reason: chapter-by-chapter creat
 5. Numbers: spell out below 100 in narration ✓
 6. Isha: single-instance signal, not canonical throughout ✓
 7. Delivery: single diff ✓
+
+---
+
+## Completion Log
+
+**All passes executed: May 18, 2026**
+
+| Pass | Status | Findings |
+|------|--------|----------|
+| 1. Mechanical | Done | 16 space-before-punctuation fixed, 3 ALL-CAPS→italic, TikTok dates shifted +1 month |
+| 2. Style | Done | Em dashes consistent (spaced, 310 instances). Timestamps: AM in artifacts, a.m. in Meera/Priya POV chapters (intentional voice distinction). WhatsApp formatting consistent across 437 messages. No en dash errors. Double `---` at chapter breaks is intentional. Tamil words already un-italicized. Numbers already spelled out in narration. |
+| 3. Grammar | Done | No problematic comma splices found (all are voice). No pronoun ambiguity (characters named when both present). No accidental word repetition — all clusters are intentional devices or artifact formatting. |
+| 4. Fact-check | Done | Anika age corrected (twelve→eleven in Ch 26). "Thirty-two" in Ch 10 verified correct (Oct 2019, before Dec birthday). All timeline anchors verified. |
+| 5. Line edit | Done | 4 micro-tightenings applied (cut ~30 words of over-explanation in Ch 19, Ch 26, Ch 31). No clichés. No metaphor overuse. Dialogue mechanics consistent. |
