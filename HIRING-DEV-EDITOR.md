@@ -16,7 +16,22 @@ Guide for cross-checking the AI developmental review of *The Woman in My Phone* 
 - **Kundiman** — https://kundiman.org/ (Asian American literary community; their network can recommend editors familiar with diaspora fiction)
 - **VONA/Voices alumni** — workshop alumni often do freelance editing and understand immigrant narratives
 
-**Cost estimate:** $0.03–0.05/word → ~$1,900–$3,400 for 64K words.
+**Cost estimate (US/UK):** $0.03–0.05/word → ~$1,900–$3,400 for 64K words.
+
+**Overseas editors (India, Philippines, South Africa):**
+- **Reedsy** — filter by location; many Indian and Filipino editors are listed
+- **Upwork** — search "developmental editor literary fiction," filter by country
+- **Indian publisher alumni** — freelancers from Penguin India, HarperCollins India, Juggernaut, Westland (search LinkedIn or ask in writing communities)
+- **Arre / The Bombay Literary Magazine networks** — editors in the Indian literary fiction space
+
+**Cost estimate (overseas):** $0.01–0.025/word → ~$640–$1,600 for 64K words.
+
+**Why overseas works well for this book:** An Indian editor will get the Tamil/Hindi code-switching, diaspora dynamics, and NRI guilt without needing footnotes — better cultural fit, not just cheaper.
+
+**Due diligence:**
+- Verify they've edited literary fiction (not just corporate/academic English)
+- Ask for a sample edit of 2–3 pages before committing
+- Confirm turnaround time — some overseas editors juggle multiple low-rate projects
 
 ---
 
