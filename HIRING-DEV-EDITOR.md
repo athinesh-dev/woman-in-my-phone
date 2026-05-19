@@ -35,6 +35,35 @@ Guide for cross-checking the AI developmental review of *The Woman in My Phone* 
 
 ---
 
+## Indian Publishers (Direct Submission — No Agent Required)
+
+If the US agent route stalls, Indian publishers accept unagented manuscripts and have shorter timelines to publication.
+
+| Publisher | Imprint/Focus | How to submit |
+|-----------|--------------|---------------|
+| **Penguin Random House India** | Hamish Hamilton (literary), Viking (upmarket) | submissions@penguinrandomhouse.in — query + 3 chapters |
+| **HarperCollins India** | 4th Estate (literary fiction) | submissions.india@harpercollins.co.in — full manuscript |
+| **Juggernaut Books** | Literary + commercial, digital-first | juggernaut.in — online submission form |
+| **Westland (Amazon Publishing India)** | Literary fiction, diaspora | westlandbooks.in — email query |
+| **Context (Westland imprint)** | Serious literary fiction | Same as Westland |
+| **Hachette India** | Literary fiction | submissions.india@hachette.co.in |
+| **Speaking Tiger** | Independent, literary-focused | speakingtiger.com — email query |
+| **Aleph Book Company** | Literary fiction, nonfiction (David Davidar) | alephbookcompany.com — submission guidelines on site |
+
+**Typical terms (Indian publishers):**
+- Advance: ₹1–5 lakh ($1,200–$6,000) for debut literary fiction
+- Royalty: 7.5–10% on print, 25% on digital
+- Print run: 3,000–5,000 copies first edition
+- Timeline: 8–14 months from acceptance to publication
+- Rights: usually India subcontinent only (you retain world English rights for a separate US deal later)
+
+**Why this could work for your book:**
+- NRI protagonist + Tamil cultural specificity = strong home-market appeal
+- Indian literary prizes (JCB Prize, Sahitya Akademi, DSC Prize) can launch international visibility
+- A successful Indian edition can be used as a credential when querying US agents afterward
+
+---
+
 ## What to Send (Submission Brief)
 
 1. Full manuscript (.docx export of V9)
