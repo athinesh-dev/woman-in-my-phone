@@ -4,20 +4,16 @@
 
 ---
 
-*"The best love stories aren't written. They're remembered."*
-
----
-
 ## Contents
 
-**PART ONE: THE HUNGER** · *July 2018*
+**PART ONE: THE HUNGER** · *August 2018*
 
 1. The Hunger
 2. The Girl in the Chat
 3. The Opening
 4. The Live ★
 
-**PART TWO: THE MIRROR** · *August 2018 – March 2019*
+**PART TWO: THE MIRROR** · *September 2018 – March 2019*
 
 5. The Mirror
 6. The Crossing
@@ -35,30 +31,29 @@
 
 13. The Call
 14. The Pattern
-15. The Second Crossing
-16. The Discovery
-17. Day Seven
+15. The Discovery
+16. Day Seven
 
 **PART FIVE: THE UNRAVELING** · *2022 – 2023*
 
-18. The Suspicion
-19. The Break
-20. The Edge
-21. The Bathroom Floor ★
-22. The Cage
+17. The Suspicion
+18. The Break
+19. The Edge
+20. The Bathroom Floor ★
+21. The Cage
 
 **PART SIX: ABUNDANCE** · *2023 – 2027*
 
-23. Priya ★
-24. Priya After ★
-25. The Leaving
-26. The First Apartment ★
-27. The Empty House
-28. The Truth
-29. Forty
-30. The Friend
-31. The King
-32. Abundance
+22. Priya ★
+23. Priya After ★
+24. The Leaving
+25. The First Apartment ★
+26. The Empty House
+27. The Truth
+28. Forty
+29. The Friend
+30. The King
+31. Abundance
 
 *★ Meera / Priya POV*
 
@@ -68,7 +63,7 @@
 ---
 
 # PART ONE: THE HUNGER
-*July 2018*
+*August 2018*
 
 ---
 
@@ -77,7 +72,7 @@
 ---
 
 **TikTok Analytics Dashboard — @ari_live99**
-*July 2018*
+*August 2018*
 
 Followers: 20,247
 Total Likes: 394,832
@@ -96,17 +91,17 @@ If it did, my analytics would look very different.
 ---
 
 **Text Messages — Ari to Priya**
-*June 14, 2018*
+*July 14, 2018*
 
 **Ari:** Want to grab dinner tonight? That Thai place you liked.
 **Priya:** Already ate.
 
-*June 21, 2018*
+*July 21, 2018*
 
 **Ari:** Movie tonight?
 **Priya:** Tired.
 
-*July 2, 2018*
+*August 2, 2018*
 
 **Ari:** I miss you.
 *Read 9:47 PM*
@@ -124,7 +119,7 @@ She stopped touching me. I don't mean sex. I mean everything. No hand on my shou
 ---
 
 **Google Search History — Ari's Browser**
-*July 2018*
+*August 2018*
 
 "wife won't touch me"
 "sexless marriage normal"
@@ -144,7 +139,7 @@ So I went where people wanted me.
 ---
 
 **TikTok Live — @ari_live99**
-*July 8, 2018, 10:14 PM PST*
+*August 8, 2018, 10:14 PM PST*
 *Viewers: 312*
 
 **@ari_live99:** Okay okay okay, listen. First three notes only. Ready?
@@ -180,7 +175,7 @@ Live sessions. That's where it really started.
 ---
 
 **TikTok Live — @ari_live99**
-*July 15, 2018, 11:42 PM PST*
+*August 15, 2018, 11:42 PM PST*
 *Viewers: 287*
 
 **@ari_live99:** You know what, forget the games for a minute. Can I just talk?
@@ -207,16 +202,16 @@ I didn't respond to it on air. I just kept talking. But I saw the username. File
 ---
 
 **TikTok Live Chat Frequency — @meera_m**
-*July 2018*
+*August 2018*
 
-July 8: Present (3 comments)
-July 9: Present (7 comments)
-July 10: Absent
-July 11: Present (12 comments)
-July 12: Present (9 comments)
-July 13: Present (15 comments)
-July 14: Present (11 comments)
-July 15: Present (8 comments)
+August 8: Present (3 comments)
+August 9: Present (7 comments)
+August 10: Absent
+August 11: Present (12 comments)
+August 12: Present (9 comments)
+August 13: Present (15 comments)
+August 14: Present (11 comments)
+August 15: Present (8 comments)
 
 *Song Game Wins: 14*
 *Average Response Time: 2.3 seconds*
@@ -249,7 +244,7 @@ One woman in this bed who wouldn't look at me.
 ---
 
 **TikTok Notification**
-*July 16, 2018, 1:03 AM PST*
+*August 16, 2018, 1:03 AM PST*
 
 **@ari_live99 sent a Direct Message to @meera_m**
 
@@ -271,7 +266,7 @@ When someone hears what you hear — really hears it, the melody curling before 
 ---
 
 **TikTok Direct Messages**
-*July 16, 2018*
+*August 16, 2018*
 
 **@ari_live99:** Hey. You keep winning my song games. Either you're a bot or you grew up in the same decade of Tamil cinema I did. Which one? 😄
 
@@ -296,7 +291,7 @@ We talked for three hours that first night. In DMs. Texts stacking up like brick
 ---
 
 **TikTok Direct Messages**
-*July 16, 2018 — continued*
+*August 16, 2018 — continued*
 
 **@ari_live99:** What do you do?
 
@@ -321,7 +316,7 @@ I didn't ask for details that night. She didn't offer them. We just circled the 
 ---
 
 **TikTok Live — @ari_live99**
-*July 17, 2018, 9:58 PM PST*
+*August 17, 2018, 9:58 PM PST*
 *Viewers: 304*
 
 **@ari_live99:** Alright, tonight's game is different. I'm going to play a song, but I'm only going to play the LAST five seconds. The outro. The part nobody remembers. Let's see who really knows their music.
@@ -351,7 +346,7 @@ Meera heard the violin climbing before it stopped. She heard the sentence that c
 ---
 
 **Video Call Log**
-*July 18, 2018*
+*August 18, 2018*
 
 Caller: @ari_live99
 Receiver: @meera_m
@@ -386,7 +381,7 @@ At 3 AM my time, we were still talking.
 ---
 
 **TikTok Direct Messages**
-*July 19, 2018, 3:14 AM PST*
+*August 19, 2018, 3:14 AM PST*
 
 **@ari_live99:** I can't remember the last time I talked to someone for four hours.
 
@@ -400,14 +395,14 @@ I read that and sat there for a while.
 
 I could hear it now, not just in her words but in the spaces between them. How she leaned into every question I asked, like no one had asked her anything real in years. She laughed too hard at small jokes, like laughter had been rationed and she was suddenly allowed to spend.
 
-Her husband . She hadn't told me much. Just that the marriage was "complicated." Just that she stayed because leaving was harder than staying. Just that she sometimes forgot what it felt like to be wanted.
+Her husband. She hadn't told me much. Just that the marriage was "complicated." Just that she stayed because leaving was harder than staying. Just that she sometimes forgot what it felt like to be wanted.
 
 I knew that forgetting. I lived in that forgetting.
 
 ---
 
 **TikTok Live — @ari_live99**
-*July 22, 2018, 10:30 PM PST*
+*August 22, 2018, 10:30 PM PST*
 *Viewers: 331*
 
 **@ari_live99:** Tonight I'm going to play a full song. No game. I just want you to listen. This one means something to me.
@@ -428,17 +423,17 @@ The chat saw emotion. She saw intention. The chat heard music. She heard ME.
 ---
 
 **Video Call Log — Summary**
-*July 18 – July 26, 2018*
+*August 18 – August 26, 2018*
 
-July 18: 4 hrs 25 min
-July 19: 3 hrs 12 min
-July 20: 5 hrs 03 min
-July 21: 2 hrs 47 min (she had to leave early)
-July 22: 4 hrs 58 min
-July 23: 3 hrs 34 min
-July 24: 6 hrs 11 min
-July 25: 4 hrs 02 min
-July 26: 5 hrs 44 min
+August 18: 4 hrs 25 min
+August 19: 3 hrs 12 min
+August 20: 5 hrs 03 min
+August 21: 2 hrs 47 min (she had to leave early)
+August 22: 4 hrs 58 min
+August 23: 3 hrs 34 min
+August 24: 6 hrs 11 min
+August 25: 4 hrs 02 min
+August 26: 5 hrs 44 min
 
 *Total: 39 hours, 56 minutes in 9 days*
 
@@ -457,7 +452,7 @@ She was becoming my real world. The calls were becoming more real than the house
 ---
 
 **TikTok Direct Messages**
-*July 26, 2018, 2:47 AM PST*
+*August 26, 2018, 2:47 AM PST*
 
 **@meera_m:** Can I tell you something?
 
@@ -475,7 +470,7 @@ She was becoming my real world. The calls were becoming more real than the house
 
 ---
 
-By July 26th, I was already gone. Not physically. Physically I was exactly where I'd always been. Same house. Same counter. Same keys. Same wife facing the wall.
+By August 26th, I was already gone. Not physically. Physically I was exactly where I'd always been. Same house. Same counter. Same keys. Same wife facing the wall.
 
 But the part of me that mattered, the part that hungered and listened and played songs for strangers and read their pain in a scrolling chat, that part had already crossed an ocean.
 
@@ -493,7 +488,7 @@ It was never coming back.
 ---
 
 **TikTok Direct Messages**
-*July 26, 2018, 11:14 PM PST*
+*August 26, 2018, 11:14 PM PST*
 
 **@ari_live99:** That picture you sent yesterday. The one by the window.
 
@@ -528,7 +523,7 @@ It wasn't nothing.
 ---
 
 **TikTok Direct Messages**
-*July 26, 2018, 11:38 PM PST*
+*August 26, 2018, 11:38 PM PST*
 
 **@ari_live99:** What are you wearing right now?
 
@@ -579,7 +574,7 @@ Her legs. Just her legs. And I was gone.
 ---
 
 **Video Call Log**
-*July 26, 2018*
+*August 26, 2018*
 
 Caller: @ari_live99
 Receiver: @meera_m
@@ -676,7 +671,7 @@ I watched her discover herself through a phone screen in the middle of the night
 ---
 
 **Video Call — disconnected**
-*July 27, 2018, 3:47 AM PST*
+*August 27, 2018, 3:47 AM PST*
 
 ---
 
@@ -684,7 +679,7 @@ We didn't talk about it the next day. Not directly. We didn't need to. The call 
 
 But I'll tell you what changed: her voice. The next time she called, there was something underneath it that hadn't been there before. Confidence. Not loud confidence, the quiet kind. What comes from discovering that you're allowed to feel good and the world doesn't end.
 
-I told myself I'd given her that. Years later, she'd tell me she gave it to herself — that I was the excuse her body needed, not the cause. She was probably right. But in July 2018, I needed to be the hero of someone's story, because I damn sure wasn't the hero of my own.
+I told myself I'd given her that. Years later, she'd tell me she gave it to herself — that I was the excuse her body needed, not the cause. She was probably right. But in August 2018, I needed to be the hero of someone's story, because I damn sure wasn't the hero of my own.
 
 Either way, we both knew: we were never going back to just talking about Tamil songs and bad marriages.
 
@@ -736,7 +731,7 @@ She typed "Pudhu Vellai Mazhai" before she knew she was typing.
 ---
 
 **TikTok Notifications — Meera's Phone**
-*July 8 – July 15, 2018*
+*August 8 – August 15, 2018*
 
 @ari_live99 went LIVE — 9 notifications
 @ari_live99 liked your comment — 4 notifications  
@@ -767,7 +762,7 @@ She'd never tell anyone she did this. But invisible was worse.
 ---
 
 **Google Search History — Meera's Phone**
-*July 2018*
+*August 2018*
 
 "ari_live99 real name"
 "Tamil TikTok voiceover guy Seattle"
@@ -839,7 +834,7 @@ They both laughed. The bitter kind. The kind where the joke is your life.
 ---
 
 **WhatsApp — Voice Note to herself**
-*July 25, 2018, 1:14 AM IST*
+*August 25, 2018, 1:14 AM IST*
 *Duration: 0:22*
 *Saved to "Locked" folder*
 
@@ -898,7 +893,7 @@ She turned off the light.
 ---
 
 # PART TWO: THE MIRROR
-*August 2018 – March 2019*
+*September 2018 – March 2019*
 
 ---
 
@@ -907,7 +902,7 @@ She turned off the light.
 ---
 
 **WhatsApp Message**
-*August 3, 2018, 2:16 AM PST*
+*September 3, 2018, 2:16 AM PST*
 
 **Meera:** He did it again tonight.
 
@@ -922,7 +917,7 @@ I was lying on my couch in Seattle, Washington, earbuds in, the blue light of my
 ---
 
 **WhatsApp Messages**
-*August 3, 2018*
+*September 3, 2018*
 
 **Ari:** Are you okay?
 
@@ -939,7 +934,7 @@ I was lying on my couch in Seattle, Washington, earbuds in, the blue light of my
 ---
 
 **Voice Note — Meera to Ari**
-*August 3, 2018, 2:24 AM PST*
+*September 3, 2018, 2:24 AM PST*
 *Duration: 0:47*
 
 *[Sound of breathing. Uneven. The kind that comes after crying for a long time. A sniffle. Then, quietly:]* "I hate this bed. I hate this room. I hate that he can just... take. Whenever he wants. Like I'm not even a person. Like I'm furniture."
@@ -1002,7 +997,7 @@ Somehow, across eight thousand miles and thirteen and a half time zones, we foun
 ---
 
 **Ari's Journal — iPhone Notes App**
-*August 2018*
+*September 2018*
 
 *"I sleep three feet from a woman who doesn't know I exist. I have 20,000 followers who think they know me. And the only person who actually sees me is on the other side of the planet, married to a man who hurts her, and I can't do a goddamn thing about it."*
 
@@ -1019,13 +1014,13 @@ We'd talk. For hours. Every single day.
 ---
 
 **Video Call Log — Summary**
-*August 2018*
+*September 2018*
 
 Total calls: 29
 Total duration: 137 hours, 42 minutes
 Average call length: 4 hours, 44 minutes
-Longest call: 8 hours, 11 minutes (August 17)
-Shortest call: 1 hour, 03 minutes (August 22 , her husband came home early)
+Longest call: 8 hours, 11 minutes (September 17)
+Shortest call: 1 hour, 03 minutes (September 22, her husband came home early)
 
 ---
 
@@ -1042,7 +1037,7 @@ Most nights, it would turn. A look. A word. The shift in her breathing that I'd 
 ---
 
 **WhatsApp Message**
-*August 14, 2018, 3:31 AM PST*
+*September 14, 2018, 3:31 AM PST*
 
 **Meera:** Sometimes I think you're the only real thing in my life. Everything else is performance. The wife. The daughter-in-law. All roles. You're the only place I'm just... me.
 
@@ -1079,7 +1074,7 @@ The invisible one pays the mortgage. But the other one, the one on the phone at 
 ---
 
 **Text Message — Priya to Ari**
-*August 19, 2018*
+*September 19, 2018*
 
 **Priya:** You were up late again last night.
 
@@ -1108,7 +1103,7 @@ It was beautiful. It was unsustainable. And it was already more real than anythi
 ---
 
 **WhatsApp Message**
-*August 31, 2018, 4:02 AM PST*
+*September 30, 2018, 4:02 AM PST*
 
 **Meera:** One month.
 
@@ -2844,7 +2839,7 @@ Because after twelve months of not knowing, that was the only question that matt
 ---
 
 **WhatsApp Messages**
-*After the call . She typed what she couldn't say out loud*
+*After the call. She typed what she couldn't say out loud*
 
 **Meera:** I tried to make it work with him. For the baby. I thought if I cut you off, I could fix my marriage. I thought the distance would make me forget.
 
@@ -2970,7 +2965,7 @@ Better, even. Because now we knew what the withdrawal felt like.
 
 ---
 
-The first few months were honeymoon. Pure reunion energy. She was attentive. Present. Answering every call on the first ring. Texting good morning before I woke up and good night after I fell asleep. Sending photos of the baby , my maybe-baby, the girl with my forehead. Crawling, standing, laughing, existing in a world I could only access through a screen.
+The first few months were honeymoon. Pure reunion energy. She was attentive. Present. Answering every call on the first ring. Texting good morning before I woke up and good night after I fell asleep. Sending photos of the baby, my maybe-baby, the girl with my forehead. Crawling, standing, laughing, existing in a world I could only access through a screen.
 
 She was performing commitment. And I was watching the performance, wanting so badly to believe it was real that I mistook the wanting for believing.
 
@@ -3067,42 +3062,7 @@ Suspicion doesn't need certainty. Ten percent is enough. You don't need to fully
 
 ---
 
-The months blurred. January became March became June became September. The calls continued. The intimacy continued. The "when?" continued. The "soon" continued.
-
-She was mine every night and his every morning. I lived for the overlap and died in the gap.
-
-I was hers. Completely, desperately, foolishly. In a way that was starting to cost me more than I could afford.
-
-But I couldn't stop. Because stopping meant going back to the house. The counter. The keys. The wife facing the wall.
-
-
-
----
-
-**WhatsApp Messages**
-*December 2021, 11:59 PM PST*
-
-**Meera:** Happy New Year, my love. ❤️ This is our year.
-
-**Ari:** You said that last year.
-
-**Meera:** This time I mean it.
-
-**Ari:** You said that too.
-
-**Meera:** ...
-
-**Meera:** I deserve that.
-
-**Ari:** No. You don't. I'm sorry. Happy New Year. I love you.
-
-**Meera:** I love you too. I promise. This year.
-
----
-
-2022 would be different. She promised. And I believed her. Because the only thing more powerful than a pattern is the hope that this time, the pattern will break.
-
-It didn't.
+She was mine every night and his every morning. I lived for the overlap and died in the gap. The months blurred. The "when?" continued. The "soon" continued. And I couldn't stop, because stopping meant going back to the house. The counter. The keys. The wife facing the wall.
 
 ---
 
@@ -3185,7 +3145,7 @@ Something changed on day three. A gear clicked into place. The nervousness was g
 
 She wanted more.
 
-Not more of me . She had all of me. More of herself. She wanted to find the parts of her body that she'd never explored. The places her husband had made into battlegrounds. She wanted to reclaim them. With me. Here. In this room where she was safe.
+Not more of me. She had all of me. More of herself. She wanted to find the parts of her body that she'd never explored. The places her husband had made into battlegrounds. She wanted to reclaim them. With me. Here. In this room where she was safe.
 
 "I want you to take your time," she said. "I want you to touch me everywhere. I want to know what my body can do when it's not being forced."
 
@@ -3209,7 +3169,7 @@ Her breathing changed. Not the familiar quickening. Something different. Deeper.
 
 "Let it happen," I said. "Don't fight it. I'm here."
 
-She gripped the sheets. Her back arched off the bed. Her legs shook . Not trembled, SHOOK , like an earthquake was starting in her spine and radiating outward.
+She gripped the sheets. Her back arched off the bed. Her legs shook. Not trembled, *shook*, like an earthquake was starting in her spine and radiating outward.
 
 Then: release.
 
@@ -3221,7 +3181,7 @@ It was everywhere. The sheets. My hands. Her thighs. A flood of surrender that h
 
 She was mortified.
 
-"Oh God — oh God, I'm sorry . I don't know what — I'm so—"
+"Oh God — oh God, I'm sorry. I don't know what — I'm so—"
 
 She was scrambling for sheets. Trying to cover herself. Trying to hide the evidence of her own pleasure like it was something shameful. Because that's what she'd been taught. That her body was a liability. That what it did was embarrassing. That pleasure was something to endure, not to celebrate.
 
@@ -3801,4 +3761,4 @@ I held it in my fist and let it be enough.
 
 
 ---
-*End of Part 1 — continued in Part 2*
+*End of Part 1 (Parts One–Four). Continued in Part 2.*

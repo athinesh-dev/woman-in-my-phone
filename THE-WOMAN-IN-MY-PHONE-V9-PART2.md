@@ -162,7 +162,7 @@ Then the pregnancy.
 
 I stared at the screen. I read it again. I read it a third time. Then I put the phone down and didn't know what to do with my hands.
 
-Not mine . It wasn't his. It COULDN'T be mine. I was eight thousand miles away. I hadn't touched her since April. Four months. The math was irrefutable.
+Not mine. It wasn't his. It *couldn't* be mine. I was eight thousand miles away. I hadn't touched her since April. Four months. The math was irrefutable.
 
 ---
 
@@ -245,7 +245,7 @@ I was asleep when she went through it. Asleep in Seattle while the woman I loved
 
 I couldn't shake it: she'd been having sex with her husband. Whether forced or not. The pregnancy was proof. Physical, undeniable proof that another man's body had been inside hers.
 
-My ten percent . That pilot light of suspicion that had been burning since the first pregnancy flared into something larger. Was it ALWAYS force? Every single time? Was there never a moment when she didn't resist? When she let it happen because resisting was more exhausting than enduring?
+My ten percent. That pilot light of suspicion that had been burning since the first pregnancy flared into something larger. Was it *always* force? Every single time? Was there never a moment when she didn't resist? When she let it happen because resisting was more exhausting than enduring?
 
 If so, was that still force? Where's the line between a woman being raped and a woman too tired to fight? Does the distinction even matter?
 
@@ -373,7 +373,7 @@ Four words. Delivered quietly. Not angry. Not crying. Just... finished. The way 
 
 Toxic.
 
-She used that word. And it landed in my stomach like a stone because she was right. The love that had once been oxygen had become carbon monoxide . Still filling the room, still being breathed in, but slowly, invisibly poisoning both of us.
+She used that word. And it landed in my stomach like a stone because she was right. The love that had once been oxygen had become carbon monoxide. Still filling the room, still being breathed in, but slowly, invisibly poisoning both of us.
 
 The suspicion. The monitoring. The fights about the trainer, the husband, the online status, the reply times. The accusations I'd disguised as questions. The control I'd disguised as concern. The jealousy I'd disguised as love.
 
@@ -482,7 +482,7 @@ I know how that sounds. I know what it makes me. A man who turned a woman's suff
 
 **Ari:** Tell me the truth. You owe me that. After five years. Tell me the truth.
 
-**Meera:** He's my husband. We live in the same house. I told you a hundred times . I can't always stop him.
+**Meera:** He's my husband. We live in the same house. I told you a hundred times. I can't always stop him.
 
 **Ari:** That's not what I'm asking. I'm asking if there were times when you DIDN'T TRY to stop him. Times when it wasn't force. Times when you just... let it happen. Or wanted it.
 
@@ -597,6 +597,14 @@ Neither of us was a ship.
 
 ---
 
+I called her. That night, the night I opened the calculator, I called her four times. The first three rang out. The fourth went straight to voicemail — she'd turned her phone off.
+
+I sat on the kitchen floor with the phone in my hand and replayed her last voice note. The one from three days before. Her voice, soft, tired, saying *I love you, I miss you, call me tomorrow.* I played it twice. Three times. Four. Each repetition made the voice sound less like love and more like a lock.
+
+I opened the voice recorder. Recorded something. Played it back. Deleted it. Recorded again. Deleted. The third time I didn't delete. The third time I hit send at 2:33 AM because if I listened to it one more time I'd lose the nerve, and I didn't want to lose the nerve. I wanted her to hear what five years of believing someone sounds like when the belief finally dies.
+
+---
+
 **WhatsApp Voice Note — Ari to Meera**
 *May 2023, 2:33 AM PST*
 *Duration: 3:47*
@@ -631,7 +639,7 @@ I wasn't fighting her. I was fighting the situation. But the situation wasn't on
 
 She didn't respond for two days.
 
-Two days of silence that felt different from every other silence in our history. Not the ghosting silence of 2020 . That was abandonment. This was something else. This was the silence of a person absorbing a blow. How a body goes quiet right after impact, before the pain registers.
+Two days of silence that felt different from every other silence in our history. Not the ghosting silence of 2020. That was abandonment. This was something else. This was the silence of a person absorbing a blow. How a body goes quiet right after impact, before the pain registers.
 
 Then, on the third day:
 
@@ -698,7 +706,7 @@ Not gradually. Not through a process of reflection and growth. I stopped when I 
 
 No more screaming. No more accusations. No more interrogations disguised as concern. No more voice notes that sounded like weapons.
 
-I pulled back. I softened. I became, overnight, a man who chose silence over cruelty. I hadn't healed . I hadn't. But because the alternative was watching the woman I loved swallow more pills, and that was a weight my soul could not carry.
+I pulled back. I softened. I became, overnight, a man who chose silence over cruelty. I hadn't healed. I hadn't. But because the alternative was watching the woman I loved swallow more pills, and that was a weight my soul could not carry.
 
 ---
 
@@ -1562,7 +1570,7 @@ She knew the way a woman knows.
 
 But she'd known something was wrong long before the cologne. Years before.
 
-A Sunday in October 2016. They'd been married five years. The girls were small — Anika was four, Nila was eighteen months. Ari was on the couch with his laptop. Priya was in the kitchen making rasam. The girls were in the playroom watching something with too much music.
+A Sunday in October 2016. They'd been married five years. The girls were small — Anika was four, Isha was eighteen months. Ari was on the couch with his laptop. Priya was in the kitchen making rasam. The girls were in the playroom watching something with too much music.
 
 She walked out to ask him a question. *Did you renew the car tabs?* Something normal.
 
@@ -2013,7 +2021,7 @@ She goes to the lobby to say good morning.
 
 ---
 
-Three words. After six years of "soon." After a thousand promises and a hundred retreats. After two children, an abortion, pills on a bathroom floor, a love story that spanned an ocean, and every excuse a trapped woman could construct . She left.
+Three words. After six years of "soon." After a thousand promises and a hundred retreats. After two children, an abortion, pills on a bathroom floor, a love story that spanned an ocean, and every excuse a trapped woman could construct. She left.
 
 Not for me. That's the part I need you to understand. She didn't leave for me.
 
@@ -2122,7 +2130,7 @@ What surprised me: I didn't explode.
 
 The old Ari, the pre-pills Ari, the voice-note Ari, the surveillance Ari, would have raged. Would have screamed about fairness and sacrifice and years lost. Would have constructed a case for why she owed him something after everything he'd given.
 
-But the new Ari , the one forged on the bathroom floor, the one who'd heard "that's the first time a man has ever said that to me" . That Ari understood.
+But the new Ari, the one forged on the bathroom floor, the one who'd heard "that's the first time a man has ever said that to me". That Ari understood.
 
 She wasn't rejecting me. She was choosing herself. For the first time in her life. She was choosing herself, and her children, and the chance to be a person before being someone's partner.
 
@@ -2176,7 +2184,7 @@ That future might not include me.
 
 **Ari:** Okay.
 
-**Meera:** But I know I'll always love you. And I know what you did for me. You didn't save me . I saved myself. But you showed me I was worth saving. And that's not nothing.
+**Meera:** But I know I'll always love you. And I know what you did for me. You didn't save me. I saved myself. But you showed me I was worth saving. And that's not nothing.
 
 **Ari:** It's not nothing.
 
@@ -2536,6 +2544,54 @@ I fell asleep at 10 PM. The earliest I'd slept in years. No phone. No calls. No 
 
 ---
 
+**Third Weekend**
+
+Anika came over on a Saturday. Priya dropped her off. No eye contact, no words beyond "I'll pick her up at six." The car pulled away and my daughter stood in the doorway of my apartment with her backpack and looked at the space the way you look at a hotel room — assessing, not arriving.
+
+She was eleven. Old enough to know things she'd never been told. Old enough to have spent a year watching her father sit on a couch staring at a phone instead of looking at her. Old enough to have poured her own cereal and carried it to her room while I disappeared into someone else's life.
+
+"It's small," she said.
+
+"It is."
+
+"Where's my room?"
+
+I showed her the couch. The blanket I'd folded. The pillow from my bed. She didn't complain. She put her backpack down and sat on the couch and looked at me and said: "Are you better now?"
+
+Not *are you okay.* Better.
+
+"I'm trying to be."
+
+She nodded. Pulled out her homework. Spread it on the floor because I didn't have a table. I sat on the kitchen floor — my spot now, apparently — and watched her do math problems on the carpet, and the distance between us was four feet and twelve months of absence I couldn't unlive.
+
+After an hour she looked up. "Dad?"
+
+"Yeah."
+
+"I heard you. On the phone. At night. For a long time."
+
+My chest went cold. "How much did you hear?"
+
+"Not words. Just... you had a voice you used. Late. A different voice than the one you used with us." She looked back at her homework. "I'm not asking. I just wanted you to know I knew."
+
+I sat with that. The weight of it. My eleven-year-old daughter, who'd been awake in her room down the hall while I whispered to a woman on the other side of the world, who'd heard the timbre of a life I'd hidden from everyone, who'd carried that knowledge silently for a year while I was too consumed to notice.
+
+"I'm sorry," I said.
+
+She didn't look up. "It's okay. You're here now."
+
+She went back to her homework. I went back to the kitchen floor. The apartment was quiet. The good quiet. The kind where two people aren't performing anything. Just existing in the same space, rebuilding what they can.
+
+At six, Priya's car pulled up. Anika packed her bag. At the door she turned and said, casually, like it cost her nothing: "Your sambar was bad, by the way. Next time use less tamarind."
+
+She'd tasted it. While I wasn't looking. My kid had tasted my terrible sambar and remembered it a week later and offered me the correction.
+
+"Less tamarind," I said. "Got it."
+
+She smiled. Small. Real. Then she was gone.
+
+---
+
 
 ---
 
@@ -2580,7 +2636,7 @@ This was the hardest one. The one I kept circling back to at 3 AM. The one that 
 
 He raped her. That is true. Repeatedly. Violently. In a country where marital rape isn't a crime and a wife's body is considered community property. That truth doesn't change.
 
-But there were also times, she admitted this finally and completely, when she didn't resist. When she lay there and let it happen. When the energy required to fight was more than the energy required to endure. And there may have been times . She never said this explicitly, but the silence around the question was its own answer . When it wasn't endurance at all.
+But there were also times, she admitted this finally and completely, when she didn't resist. When she lay there and let it happen. When the energy required to fight was more than the energy required to endure. And there may have been times. She never said this explicitly, but the silence around the question was its own answer. When it wasn't endurance at all.
 
 She lived with him. Shared a bed. Raised a child. The human body doesn't maintain permanent resistance to proximity. That's not a moral judgment. It's biology. Expecting her to have been a fortress for six years, impenetrable, untouched, mine alone, was expecting her to be something no human being can be.
 
@@ -3079,7 +3135,7 @@ I stared at that message for a long time. Longer than I want to admit. Because t
 
 I'm writing this last chapter from a different house.
 
-Same city. Same rain. Same Pacific Northwest grey that would depress anyone who didn't understand that grey is just every color being held at once. But a different house. A different life. A different man sitting in a different chair, looking at the same mountains through a different window.
+Same city. Same rain. Same Pacific Northwest grey. But a different house. A different life. A different man sitting in a different chair, looking at the same mountains through a different window.
 
 Priya and I separated. Quietly. We sat at a kitchen table and said the words we'd both been carrying for years.
 
@@ -3173,7 +3229,7 @@ What I should have said. What I would say now, if she asked again:
 
 "And I want to be whole too. Not because of you. Not despite you. Just... whole. On my own. In my own life."
 
-"If we ever meet again . In the same room, in the same country, on the same side of the ocean . I want to meet you as a whole person meeting another whole person. Not two drowning people grabbing onto each other. Two people who can swim. Choosing to swim together."
+"If we ever meet again. In the same room, in the same country, on the same side of the ocean. I want to meet you as a whole person meeting another whole person. Not two drowning people grabbing onto each other. Two people who can swim. Choosing to swim together."
 
 That's abundance.
 
@@ -3217,4 +3273,4 @@ But last Tuesday, I didn't.
 
 
 ---
-*End of Part 2*
+*End of Part 2 (Parts Five–Six). See Part 1 for Parts One–Four.*
