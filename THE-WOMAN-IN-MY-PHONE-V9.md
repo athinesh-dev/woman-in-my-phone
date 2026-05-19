@@ -4360,7 +4360,7 @@ Neither of us was a ship.
 
 I called her. That night, the night I opened the calculator, I called her four times. The first three rang out. The fourth went straight to voicemail — she'd turned her phone off.
 
-I sat on the kitchen floor with the phone in my hand and replayed her last voice note. The one from three days before. Her voice, soft, tired, saying *I love you, I miss you, call me tomorrow.* I played it twice. Three times. Four. Each repetition made the voice sound less like love and more like a lock. Like something designed to keep me where I was.
+I sat on the kitchen floor with the phone in my hand and replayed her last voice note. The one from three days before. Her voice, soft, tired, saying *I love you, I miss you, call me tomorrow.* I played it twice. Three times. Four. Each repetition made the voice sound less like love and more like a lock.
 
 I opened the voice recorder. Recorded something. Played it back. Deleted it. Recorded again. Deleted. The third time I didn't delete. The third time I hit send at 2:33 AM because if I listened to it one more time I'd lose the nerve, and I didn't want to lose the nerve. I wanted her to hear what five years of believing someone sounds like when the belief finally dies.
 
@@ -6319,7 +6319,7 @@ She was eleven. Old enough to know things she'd never been told. Old enough to h
 
 I showed her the couch. The blanket I'd folded. The pillow from my bed. She didn't complain. She put her backpack down and sat on the couch and looked at me and said: "Are you better now?"
 
-Not *are you okay.* Better. The word of someone who'd known I was sick.
+Not *are you okay.* Better.
 
 "I'm trying to be."
 
@@ -6345,7 +6345,7 @@ She went back to her homework. I went back to the kitchen floor. The apartment w
 
 At six, Priya's car pulled up. Anika packed her bag. At the door she turned and said, casually, like it cost her nothing: "Your sambar was bad, by the way. Next time use less tamarind."
 
-She'd tasted it. While I wasn't looking. My kid had tasted my terrible sambar and remembered it a week later and offered me the correction like a gift.
+She'd tasted it. While I wasn't looking. My kid had tasted my terrible sambar and remembered it a week later and offered me the correction.
 
 "Less tamarind," I said. "Got it."
 
@@ -6896,7 +6896,7 @@ I stared at that message for a long time. Longer than I want to admit. Because t
 
 I'm writing this last chapter from a different house.
 
-Same city. Same rain. Same Pacific Northwest grey that would depress anyone who didn't understand that grey is just every color being held at once. But a different house. A different life. A different man sitting in a different chair, looking at the same mountains through a different window.
+Same city. Same rain. Same Pacific Northwest grey. But a different house. A different life. A different man sitting in a different chair, looking at the same mountains through a different window.
 
 Priya and I separated. Quietly. We sat at a kitchen table and said the words we'd both been carrying for years.
 
