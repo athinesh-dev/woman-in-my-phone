@@ -62,7 +62,7 @@ Fix typos and formatting errors that can be caught systematically:
 2. **Fragment consistency** — Fragments are the dominant style. Don't "fix." Only flag fragments that feel unintentional (e.g., a dangling "And" with no follow-through).
 3. **Tense consistency** — Ari narrates in present tense with past tense for backstory. Verify no slippage at transition points (especially in chapters that shift between present-day reflection and flashback).
 4. **Pronoun clarity** — In sections with two "she" characters (Meera + Priya, or Meera + daughter), verify the referent is always clear within the sentence.
-5. **Repetition audit** — Flag words used 3+ times in the same paragraph. Intentional repetition is a device — only flag where it reads as oversight. Motif words to audit for excess: "hunger" (title concept, 16+ uses), "soon" (Ch 14 motif), "phone" (central but check for unintentional clustering), "drowning," "cage," "currency," "pilot light."
+5. **Repetition audit** — Flag words used 3+ times in the same paragraph. Intentional repetition is a device — only flag where it reads as oversight. Motif words to audit for excess: "hunger" (title concept, 16+ uses), "soon" (Ch 14 motif), "drowning," "cage," "currency," "pilot light." Note: "phone" is the title noun and central object — do not flag legitimate uses; only flag clusters of 3+ within a single paragraph.
 
 ---
 
@@ -71,8 +71,8 @@ Fix typos and formatting errors that can be caught systematically:
 | Item | What to verify |
 |------|---------------|
 | Timeline | Key dates: Ari born Dec 27, 1986. First crossing Feb 2019. Baby (Nila) born July 2019, conceived Oct 2018. Divorce Dec 2023. Story present 2026–2027. |
-| Ages — Ari | 37 in apartment scenes (Dec 2023). Turns 40 on Dec 27, 2026 (Ch 28). |
-| Ages — Anika | Born ~2012. Four in Oct 2016 (Ch 22). Eleven in mid-2023 (Ch 21, cereal bowl). Twelve in Dec 2023 (Ch 26, apartment visit). Verify all references align. |
+| Ages — Ari | 37 in apartment scenes (Dec 2023). Turns 40 on Dec 27, 2026 (Ch 28). In Ch 1 (August 2018 after TikTok fix), he's 31 — turns 32 in Dec 2018. Verify any "thirty-two" reference is set after Dec 27, 2018. |
+| Ages — Anika | Born ~2012. Four in Oct 2016 (Ch 22). Eleven in mid-2023 (Ch 21, cereal bowl). Twelve in Dec 2023 (Ch 26, apartment visit). Verify the six-month gap between cereal bowl (mid-2023) and apartment (Dec 2023) accounts for the 11→12 age change. |
 | Ages — Nila (Meera's) | Born July 2019. Six months in Jan 2020 (Ch 12). Five in Ch 25 (2024). Verify. |
 | Ages — Isha | Eighteen months in Oct 2016 (Ch 22). No other references. Leave. |
 | TikTok timing | After fix: Part One opens August 2018. Verify no "July 2018" remnants. |
@@ -86,7 +86,7 @@ Fix typos and formatting errors that can be caught systematically:
 
 This is judgment-based stylistic work, not mechanical copy editing. Different skill, different eye.
 
-- Flag any lines that sound "edited" — overly smooth or generic compared to surrounding voice. Especially check passages added in Phases 6–8 and this session's additions (voice-note beat, daughter scene, NRI sambar paragraph).
+- Flag any lines that sound "edited" — overly smooth or generic compared to surrounding voice. Specific chapters to scrutinize: voice-note pressure beat (Ch 19), post-divorce daughter scene (Ch 26), NRI sambar paragraph (Ch 26), depth-add scenes (Ch 11, Ch 22, Ch 23), post-jail recovery transition (Ch 21–22).
 - Flag clichés. The manuscript is generally clean but multi-pass editing sometimes introduces them.
 - Metaphor audit — flag any metaphor used more than twice: "drowning," "cage," "currency," "pilot light," "hunger," "phone as mirror."
 - Tamil/Hindi word consistency — verify sambar, rasam, biryani, chai, amma, appa, da, dei are all used consistently (no one-off variations like "ammo" or "dey").

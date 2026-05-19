@@ -6,14 +6,14 @@
 
 ## Contents
 
-**PART ONE: THE HUNGER** · *July 2018*
+**PART ONE: THE HUNGER** · *August 2018*
 
 1. The Hunger
 2. The Girl in the Chat
 3. The Opening
 4. The Live ★
 
-**PART TWO: THE MIRROR** · *August 2018 – March 2019*
+**PART TWO: THE MIRROR** · *September 2018 – March 2019*
 
 5. The Mirror
 6. The Crossing
@@ -63,7 +63,7 @@
 ---
 
 # PART ONE: THE HUNGER
-*July 2018*
+*August 2018*
 
 ---
 
@@ -72,7 +72,7 @@
 ---
 
 **TikTok Analytics Dashboard — @ari_live99**
-*July 2018*
+*August 2018*
 
 Followers: 20,247
 Total Likes: 394,832
@@ -91,17 +91,17 @@ If it did, my analytics would look very different.
 ---
 
 **Text Messages — Ari to Priya**
-*June 14, 2018*
+*July 14, 2018*
 
 **Ari:** Want to grab dinner tonight? That Thai place you liked.
 **Priya:** Already ate.
 
-*June 21, 2018*
+*July 21, 2018*
 
 **Ari:** Movie tonight?
 **Priya:** Tired.
 
-*July 2, 2018*
+*August 2, 2018*
 
 **Ari:** I miss you.
 *Read 9:47 PM*
@@ -119,7 +119,7 @@ She stopped touching me. I don't mean sex. I mean everything. No hand on my shou
 ---
 
 **Google Search History — Ari's Browser**
-*July 2018*
+*August 2018*
 
 "wife won't touch me"
 "sexless marriage normal"
@@ -139,7 +139,7 @@ So I went where people wanted me.
 ---
 
 **TikTok Live — @ari_live99**
-*July 8, 2018, 10:14 PM PST*
+*August 8, 2018, 10:14 PM PST*
 *Viewers: 312*
 
 **@ari_live99:** Okay okay okay, listen. First three notes only. Ready?
@@ -175,7 +175,7 @@ Live sessions. That's where it really started.
 ---
 
 **TikTok Live — @ari_live99**
-*July 15, 2018, 11:42 PM PST*
+*August 15, 2018, 11:42 PM PST*
 *Viewers: 287*
 
 **@ari_live99:** You know what, forget the games for a minute. Can I just talk?
@@ -202,16 +202,16 @@ I didn't respond to it on air. I just kept talking. But I saw the username. File
 ---
 
 **TikTok Live Chat Frequency — @meera_m**
-*July 2018*
+*August 2018*
 
-July 8: Present (3 comments)
-July 9: Present (7 comments)
-July 10: Absent
-July 11: Present (12 comments)
-July 12: Present (9 comments)
-July 13: Present (15 comments)
-July 14: Present (11 comments)
-July 15: Present (8 comments)
+August 8: Present (3 comments)
+August 9: Present (7 comments)
+August 10: Absent
+August 11: Present (12 comments)
+August 12: Present (9 comments)
+August 13: Present (15 comments)
+August 14: Present (11 comments)
+August 15: Present (8 comments)
 
 *Song Game Wins: 14*
 *Average Response Time: 2.3 seconds*
@@ -244,7 +244,7 @@ One woman in this bed who wouldn't look at me.
 ---
 
 **TikTok Notification**
-*July 16, 2018, 1:03 AM PST*
+*August 16, 2018, 1:03 AM PST*
 
 **@ari_live99 sent a Direct Message to @meera_m**
 
@@ -266,7 +266,7 @@ When someone hears what you hear — really hears it, the melody curling before 
 ---
 
 **TikTok Direct Messages**
-*July 16, 2018*
+*August 16, 2018*
 
 **@ari_live99:** Hey. You keep winning my song games. Either you're a bot or you grew up in the same decade of Tamil cinema I did. Which one? 😄
 
@@ -291,7 +291,7 @@ We talked for three hours that first night. In DMs. Texts stacking up like brick
 ---
 
 **TikTok Direct Messages**
-*July 16, 2018 — continued*
+*August 16, 2018 — continued*
 
 **@ari_live99:** What do you do?
 
@@ -316,7 +316,7 @@ I didn't ask for details that night. She didn't offer them. We just circled the 
 ---
 
 **TikTok Live — @ari_live99**
-*July 17, 2018, 9:58 PM PST*
+*August 17, 2018, 9:58 PM PST*
 *Viewers: 304*
 
 **@ari_live99:** Alright, tonight's game is different. I'm going to play a song, but I'm only going to play the LAST five seconds. The outro. The part nobody remembers. Let's see who really knows their music.
@@ -346,7 +346,7 @@ Meera heard the violin climbing before it stopped. She heard the sentence that c
 ---
 
 **Video Call Log**
-*July 18, 2018*
+*August 18, 2018*
 
 Caller: @ari_live99
 Receiver: @meera_m
@@ -381,7 +381,7 @@ At 3 AM my time, we were still talking.
 ---
 
 **TikTok Direct Messages**
-*July 19, 2018, 3:14 AM PST*
+*August 19, 2018, 3:14 AM PST*
 
 **@ari_live99:** I can't remember the last time I talked to someone for four hours.
 
@@ -395,14 +395,14 @@ I read that and sat there for a while.
 
 I could hear it now, not just in her words but in the spaces between them. How she leaned into every question I asked, like no one had asked her anything real in years. She laughed too hard at small jokes, like laughter had been rationed and she was suddenly allowed to spend.
 
-Her husband . She hadn't told me much. Just that the marriage was "complicated." Just that she stayed because leaving was harder than staying. Just that she sometimes forgot what it felt like to be wanted.
+Her husband. She hadn't told me much. Just that the marriage was "complicated." Just that she stayed because leaving was harder than staying. Just that she sometimes forgot what it felt like to be wanted.
 
 I knew that forgetting. I lived in that forgetting.
 
 ---
 
 **TikTok Live — @ari_live99**
-*July 22, 2018, 10:30 PM PST*
+*August 22, 2018, 10:30 PM PST*
 *Viewers: 331*
 
 **@ari_live99:** Tonight I'm going to play a full song. No game. I just want you to listen. This one means something to me.
@@ -423,17 +423,17 @@ The chat saw emotion. She saw intention. The chat heard music. She heard ME.
 ---
 
 **Video Call Log — Summary**
-*July 18 – July 26, 2018*
+*August 18 – August 26, 2018*
 
-July 18: 4 hrs 25 min
-July 19: 3 hrs 12 min
-July 20: 5 hrs 03 min
-July 21: 2 hrs 47 min (she had to leave early)
-July 22: 4 hrs 58 min
-July 23: 3 hrs 34 min
-July 24: 6 hrs 11 min
-July 25: 4 hrs 02 min
-July 26: 5 hrs 44 min
+August 18: 4 hrs 25 min
+August 19: 3 hrs 12 min
+August 20: 5 hrs 03 min
+August 21: 2 hrs 47 min (she had to leave early)
+August 22: 4 hrs 58 min
+August 23: 3 hrs 34 min
+August 24: 6 hrs 11 min
+August 25: 4 hrs 02 min
+August 26: 5 hrs 44 min
 
 *Total: 39 hours, 56 minutes in 9 days*
 
@@ -452,7 +452,7 @@ She was becoming my real world. The calls were becoming more real than the house
 ---
 
 **TikTok Direct Messages**
-*July 26, 2018, 2:47 AM PST*
+*August 26, 2018, 2:47 AM PST*
 
 **@meera_m:** Can I tell you something?
 
@@ -470,7 +470,7 @@ She was becoming my real world. The calls were becoming more real than the house
 
 ---
 
-By July 26th, I was already gone. Not physically. Physically I was exactly where I'd always been. Same house. Same counter. Same keys. Same wife facing the wall.
+By August 26th, I was already gone. Not physically. Physically I was exactly where I'd always been. Same house. Same counter. Same keys. Same wife facing the wall.
 
 But the part of me that mattered, the part that hungered and listened and played songs for strangers and read their pain in a scrolling chat, that part had already crossed an ocean.
 
@@ -488,7 +488,7 @@ It was never coming back.
 ---
 
 **TikTok Direct Messages**
-*July 26, 2018, 11:14 PM PST*
+*August 26, 2018, 11:14 PM PST*
 
 **@ari_live99:** That picture you sent yesterday. The one by the window.
 
@@ -523,7 +523,7 @@ It wasn't nothing.
 ---
 
 **TikTok Direct Messages**
-*July 26, 2018, 11:38 PM PST*
+*August 26, 2018, 11:38 PM PST*
 
 **@ari_live99:** What are you wearing right now?
 
@@ -574,7 +574,7 @@ Her legs. Just her legs. And I was gone.
 ---
 
 **Video Call Log**
-*July 26, 2018*
+*August 26, 2018*
 
 Caller: @ari_live99
 Receiver: @meera_m
@@ -671,7 +671,7 @@ I watched her discover herself through a phone screen in the middle of the night
 ---
 
 **Video Call — disconnected**
-*July 27, 2018, 3:47 AM PST*
+*August 27, 2018, 3:47 AM PST*
 
 ---
 
@@ -679,7 +679,7 @@ We didn't talk about it the next day. Not directly. We didn't need to. The call 
 
 But I'll tell you what changed: her voice. The next time she called, there was something underneath it that hadn't been there before. Confidence. Not loud confidence, the quiet kind. What comes from discovering that you're allowed to feel good and the world doesn't end.
 
-I told myself I'd given her that. Years later, she'd tell me she gave it to herself — that I was the excuse her body needed, not the cause. She was probably right. But in July 2018, I needed to be the hero of someone's story, because I damn sure wasn't the hero of my own.
+I told myself I'd given her that. Years later, she'd tell me she gave it to herself — that I was the excuse her body needed, not the cause. She was probably right. But in August 2018, I needed to be the hero of someone's story, because I damn sure wasn't the hero of my own.
 
 Either way, we both knew: we were never going back to just talking about Tamil songs and bad marriages.
 
@@ -731,7 +731,7 @@ She typed "Pudhu Vellai Mazhai" before she knew she was typing.
 ---
 
 **TikTok Notifications — Meera's Phone**
-*July 8 – July 15, 2018*
+*August 8 – August 15, 2018*
 
 @ari_live99 went LIVE — 9 notifications
 @ari_live99 liked your comment — 4 notifications  
@@ -762,7 +762,7 @@ She'd never tell anyone she did this. But invisible was worse.
 ---
 
 **Google Search History — Meera's Phone**
-*July 2018*
+*August 2018*
 
 "ari_live99 real name"
 "Tamil TikTok voiceover guy Seattle"
@@ -834,7 +834,7 @@ They both laughed. The bitter kind. The kind where the joke is your life.
 ---
 
 **WhatsApp — Voice Note to herself**
-*July 25, 2018, 1:14 AM IST*
+*August 25, 2018, 1:14 AM IST*
 *Duration: 0:22*
 *Saved to "Locked" folder*
 
@@ -893,7 +893,7 @@ She turned off the light.
 ---
 
 # PART TWO: THE MIRROR
-*August 2018 – March 2019*
+*September 2018 – March 2019*
 
 ---
 
@@ -902,7 +902,7 @@ She turned off the light.
 ---
 
 **WhatsApp Message**
-*August 3, 2018, 2:16 AM PST*
+*September 3, 2018, 2:16 AM PST*
 
 **Meera:** He did it again tonight.
 
@@ -917,7 +917,7 @@ I was lying on my couch in Seattle, Washington, earbuds in, the blue light of my
 ---
 
 **WhatsApp Messages**
-*August 3, 2018*
+*September 3, 2018*
 
 **Ari:** Are you okay?
 
@@ -934,7 +934,7 @@ I was lying on my couch in Seattle, Washington, earbuds in, the blue light of my
 ---
 
 **Voice Note — Meera to Ari**
-*August 3, 2018, 2:24 AM PST*
+*September 3, 2018, 2:24 AM PST*
 *Duration: 0:47*
 
 *[Sound of breathing. Uneven. The kind that comes after crying for a long time. A sniffle. Then, quietly:]* "I hate this bed. I hate this room. I hate that he can just... take. Whenever he wants. Like I'm not even a person. Like I'm furniture."
@@ -997,7 +997,7 @@ Somehow, across eight thousand miles and thirteen and a half time zones, we foun
 ---
 
 **Ari's Journal — iPhone Notes App**
-*August 2018*
+*September 2018*
 
 *"I sleep three feet from a woman who doesn't know I exist. I have 20,000 followers who think they know me. And the only person who actually sees me is on the other side of the planet, married to a man who hurts her, and I can't do a goddamn thing about it."*
 
@@ -1014,13 +1014,13 @@ We'd talk. For hours. Every single day.
 ---
 
 **Video Call Log — Summary**
-*August 2018*
+*September 2018*
 
 Total calls: 29
 Total duration: 137 hours, 42 minutes
 Average call length: 4 hours, 44 minutes
-Longest call: 8 hours, 11 minutes (August 17)
-Shortest call: 1 hour, 03 minutes (August 22 , her husband came home early)
+Longest call: 8 hours, 11 minutes (September 17)
+Shortest call: 1 hour, 03 minutes (September 22, her husband came home early)
 
 ---
 
@@ -1037,7 +1037,7 @@ Most nights, it would turn. A look. A word. The shift in her breathing that I'd 
 ---
 
 **WhatsApp Message**
-*August 14, 2018, 3:31 AM PST*
+*September 14, 2018, 3:31 AM PST*
 
 **Meera:** Sometimes I think you're the only real thing in my life. Everything else is performance. The wife. The daughter-in-law. All roles. You're the only place I'm just... me.
 
@@ -1074,7 +1074,7 @@ The invisible one pays the mortgage. But the other one, the one on the phone at 
 ---
 
 **Text Message — Priya to Ari**
-*August 19, 2018*
+*September 19, 2018*
 
 **Priya:** You were up late again last night.
 
@@ -1103,7 +1103,7 @@ It was beautiful. It was unsustainable. And it was already more real than anythi
 ---
 
 **WhatsApp Message**
-*August 31, 2018, 4:02 AM PST*
+*September 30, 2018, 4:02 AM PST*
 
 **Meera:** One month.
 
@@ -2839,7 +2839,7 @@ Because after twelve months of not knowing, that was the only question that matt
 ---
 
 **WhatsApp Messages**
-*After the call . She typed what she couldn't say out loud*
+*After the call. She typed what she couldn't say out loud*
 
 **Meera:** I tried to make it work with him. For the baby. I thought if I cut you off, I could fix my marriage. I thought the distance would make me forget.
 
@@ -2965,7 +2965,7 @@ Better, even. Because now we knew what the withdrawal felt like.
 
 ---
 
-The first few months were honeymoon. Pure reunion energy. She was attentive. Present. Answering every call on the first ring. Texting good morning before I woke up and good night after I fell asleep. Sending photos of the baby , my maybe-baby, the girl with my forehead. Crawling, standing, laughing, existing in a world I could only access through a screen.
+The first few months were honeymoon. Pure reunion energy. She was attentive. Present. Answering every call on the first ring. Texting good morning before I woke up and good night after I fell asleep. Sending photos of the baby, my maybe-baby, the girl with my forehead. Crawling, standing, laughing, existing in a world I could only access through a screen.
 
 She was performing commitment. And I was watching the performance, wanting so badly to believe it was real that I mistook the wanting for believing.
 
@@ -3145,7 +3145,7 @@ Something changed on day three. A gear clicked into place. The nervousness was g
 
 She wanted more.
 
-Not more of me . She had all of me. More of herself. She wanted to find the parts of her body that she'd never explored. The places her husband had made into battlegrounds. She wanted to reclaim them. With me. Here. In this room where she was safe.
+Not more of me. She had all of me. More of herself. She wanted to find the parts of her body that she'd never explored. The places her husband had made into battlegrounds. She wanted to reclaim them. With me. Here. In this room where she was safe.
 
 "I want you to take your time," she said. "I want you to touch me everywhere. I want to know what my body can do when it's not being forced."
 
@@ -3169,7 +3169,7 @@ Her breathing changed. Not the familiar quickening. Something different. Deeper.
 
 "Let it happen," I said. "Don't fight it. I'm here."
 
-She gripped the sheets. Her back arched off the bed. Her legs shook . Not trembled, SHOOK , like an earthquake was starting in her spine and radiating outward.
+She gripped the sheets. Her back arched off the bed. Her legs shook. Not trembled, *shook*, like an earthquake was starting in her spine and radiating outward.
 
 Then: release.
 
@@ -3181,7 +3181,7 @@ It was everywhere. The sheets. My hands. Her thighs. A flood of surrender that h
 
 She was mortified.
 
-"Oh God — oh God, I'm sorry . I don't know what — I'm so—"
+"Oh God — oh God, I'm sorry. I don't know what — I'm so—"
 
 She was scrambling for sheets. Trying to cover herself. Trying to hide the evidence of her own pleasure like it was something shameful. Because that's what she'd been taught. That her body was a liability. That what it did was embarrassing. That pleasure was something to endure, not to celebrate.
 
@@ -3923,7 +3923,7 @@ Then the pregnancy.
 
 I stared at the screen. I read it again. I read it a third time. Then I put the phone down and didn't know what to do with my hands.
 
-Not mine . It wasn't his. It COULDN'T be mine. I was eight thousand miles away. I hadn't touched her since April. Four months. The math was irrefutable.
+Not mine. It wasn't his. It *couldn't* be mine. I was eight thousand miles away. I hadn't touched her since April. Four months. The math was irrefutable.
 
 ---
 
@@ -4006,7 +4006,7 @@ I was asleep when she went through it. Asleep in Seattle while the woman I loved
 
 I couldn't shake it: she'd been having sex with her husband. Whether forced or not. The pregnancy was proof. Physical, undeniable proof that another man's body had been inside hers.
 
-My ten percent . That pilot light of suspicion that had been burning since the first pregnancy flared into something larger. Was it ALWAYS force? Every single time? Was there never a moment when she didn't resist? When she let it happen because resisting was more exhausting than enduring?
+My ten percent. That pilot light of suspicion that had been burning since the first pregnancy flared into something larger. Was it *always* force? Every single time? Was there never a moment when she didn't resist? When she let it happen because resisting was more exhausting than enduring?
 
 If so, was that still force? Where's the line between a woman being raped and a woman too tired to fight? Does the distinction even matter?
 
@@ -4134,7 +4134,7 @@ Four words. Delivered quietly. Not angry. Not crying. Just... finished. The way 
 
 Toxic.
 
-She used that word. And it landed in my stomach like a stone because she was right. The love that had once been oxygen had become carbon monoxide . Still filling the room, still being breathed in, but slowly, invisibly poisoning both of us.
+She used that word. And it landed in my stomach like a stone because she was right. The love that had once been oxygen had become carbon monoxide. Still filling the room, still being breathed in, but slowly, invisibly poisoning both of us.
 
 The suspicion. The monitoring. The fights about the trainer, the husband, the online status, the reply times. The accusations I'd disguised as questions. The control I'd disguised as concern. The jealousy I'd disguised as love.
 
@@ -4243,7 +4243,7 @@ I know how that sounds. I know what it makes me. A man who turned a woman's suff
 
 **Ari:** Tell me the truth. You owe me that. After five years. Tell me the truth.
 
-**Meera:** He's my husband. We live in the same house. I told you a hundred times . I can't always stop him.
+**Meera:** He's my husband. We live in the same house. I told you a hundred times. I can't always stop him.
 
 **Ari:** That's not what I'm asking. I'm asking if there were times when you DIDN'T TRY to stop him. Times when it wasn't force. Times when you just... let it happen. Or wanted it.
 
@@ -4400,7 +4400,7 @@ I wasn't fighting her. I was fighting the situation. But the situation wasn't on
 
 She didn't respond for two days.
 
-Two days of silence that felt different from every other silence in our history. Not the ghosting silence of 2020 . That was abandonment. This was something else. This was the silence of a person absorbing a blow. How a body goes quiet right after impact, before the pain registers.
+Two days of silence that felt different from every other silence in our history. Not the ghosting silence of 2020. That was abandonment. This was something else. This was the silence of a person absorbing a blow. How a body goes quiet right after impact, before the pain registers.
 
 Then, on the third day:
 
@@ -4467,7 +4467,7 @@ Not gradually. Not through a process of reflection and growth. I stopped when I 
 
 No more screaming. No more accusations. No more interrogations disguised as concern. No more voice notes that sounded like weapons.
 
-I pulled back. I softened. I became, overnight, a man who chose silence over cruelty. I hadn't healed . I hadn't. But because the alternative was watching the woman I loved swallow more pills, and that was a weight my soul could not carry.
+I pulled back. I softened. I became, overnight, a man who chose silence over cruelty. I hadn't healed. I hadn't. But because the alternative was watching the woman I loved swallow more pills, and that was a weight my soul could not carry.
 
 ---
 
@@ -5782,7 +5782,7 @@ She goes to the lobby to say good morning.
 
 ---
 
-Three words. After six years of "soon." After a thousand promises and a hundred retreats. After two children, an abortion, pills on a bathroom floor, a love story that spanned an ocean, and every excuse a trapped woman could construct . She left.
+Three words. After six years of "soon." After a thousand promises and a hundred retreats. After two children, an abortion, pills on a bathroom floor, a love story that spanned an ocean, and every excuse a trapped woman could construct. She left.
 
 Not for me. That's the part I need you to understand. She didn't leave for me.
 
@@ -5891,7 +5891,7 @@ What surprised me: I didn't explode.
 
 The old Ari, the pre-pills Ari, the voice-note Ari, the surveillance Ari, would have raged. Would have screamed about fairness and sacrifice and years lost. Would have constructed a case for why she owed him something after everything he'd given.
 
-But the new Ari , the one forged on the bathroom floor, the one who'd heard "that's the first time a man has ever said that to me" . That Ari understood.
+But the new Ari, the one forged on the bathroom floor, the one who'd heard "that's the first time a man has ever said that to me". That Ari understood.
 
 She wasn't rejecting me. She was choosing herself. For the first time in her life. She was choosing herself, and her children, and the chance to be a person before being someone's partner.
 
@@ -5945,7 +5945,7 @@ That future might not include me.
 
 **Ari:** Okay.
 
-**Meera:** But I know I'll always love you. And I know what you did for me. You didn't save me . I saved myself. But you showed me I was worth saving. And that's not nothing.
+**Meera:** But I know I'll always love you. And I know what you did for me. You didn't save me. I saved myself. But you showed me I was worth saving. And that's not nothing.
 
 **Ari:** It's not nothing.
 
@@ -6309,7 +6309,7 @@ I fell asleep at 10 PM. The earliest I'd slept in years. No phone. No calls. No 
 
 Anika came over on a Saturday. Priya dropped her off. No eye contact, no words beyond "I'll pick her up at six." The car pulled away and my daughter stood in the doorway of my apartment with her backpack and looked at the space the way you look at a hotel room — assessing, not arriving.
 
-She was twelve. Old enough to know things she'd never been told. Old enough to have spent a year watching her father sit on a couch staring at a phone instead of looking at her. Old enough to have poured her own cereal and carried it to her room while I disappeared into someone else's life.
+She was eleven. Old enough to know things she'd never been told. Old enough to have spent a year watching her father sit on a couch staring at a phone instead of looking at her. Old enough to have poured her own cereal and carried it to her room while I disappeared into someone else's life.
 
 "It's small," she said.
 
@@ -6335,7 +6335,7 @@ My chest went cold. "How much did you hear?"
 
 "Not words. Just... you had a voice you used. Late. A different voice than the one you used with us." She looked back at her homework. "I'm not asking. I just wanted you to know I knew."
 
-I sat with that. The weight of it. My twelve-year-old daughter, who'd been awake in her room down the hall while I whispered to a woman on the other side of the world, who'd heard the timbre of a life I'd hidden from everyone, who'd carried that knowledge silently for a year while I was too consumed to notice.
+I sat with that. The weight of it. My eleven-year-old daughter, who'd been awake in her room down the hall while I whispered to a woman on the other side of the world, who'd heard the timbre of a life I'd hidden from everyone, who'd carried that knowledge silently for a year while I was too consumed to notice.
 
 "I'm sorry," I said.
 
@@ -6397,7 +6397,7 @@ This was the hardest one. The one I kept circling back to at 3 AM. The one that 
 
 He raped her. That is true. Repeatedly. Violently. In a country where marital rape isn't a crime and a wife's body is considered community property. That truth doesn't change.
 
-But there were also times, she admitted this finally and completely, when she didn't resist. When she lay there and let it happen. When the energy required to fight was more than the energy required to endure. And there may have been times . She never said this explicitly, but the silence around the question was its own answer . When it wasn't endurance at all.
+But there were also times, she admitted this finally and completely, when she didn't resist. When she lay there and let it happen. When the energy required to fight was more than the energy required to endure. And there may have been times. She never said this explicitly, but the silence around the question was its own answer. When it wasn't endurance at all.
 
 She lived with him. Shared a bed. Raised a child. The human body doesn't maintain permanent resistance to proximity. That's not a moral judgment. It's biology. Expecting her to have been a fortress for six years, impenetrable, untouched, mine alone, was expecting her to be something no human being can be.
 
@@ -6990,7 +6990,7 @@ What I should have said. What I would say now, if she asked again:
 
 "And I want to be whole too. Not because of you. Not despite you. Just... whole. On my own. In my own life."
 
-"If we ever meet again . In the same room, in the same country, on the same side of the ocean . I want to meet you as a whole person meeting another whole person. Not two drowning people grabbing onto each other. Two people who can swim. Choosing to swim together."
+"If we ever meet again. In the same room, in the same country, on the same side of the ocean. I want to meet you as a whole person meeting another whole person. Not two drowning people grabbing onto each other. Two people who can swim. Choosing to swim together."
 
 That's abundance.
 
