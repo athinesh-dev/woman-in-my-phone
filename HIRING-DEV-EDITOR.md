@@ -28,6 +28,18 @@ Guide for cross-checking the AI developmental review of *The Woman in My Phone* 
 
 **Why overseas works well for this book:** An Indian editor will get the Tamil/Hindi code-switching, diaspora dynamics, and NRI guilt without needing footnotes — better cultural fit, not just cheaper.
 
+**Which job titles to target on LinkedIn:**
+
+| Title | Good fit? | Why |
+|-------|-----------|-----|
+| Commissioning Editor | Best fit | Acquires books, shapes manuscripts at structural level |
+| Developmental Editor | Perfect fit | Structure, arcs, pacing — the exact job |
+| Senior Editor / Editor | Great fit | Hands-on manuscript shaping at publishers |
+| Editorial Director | Good fit | Big-picture reads (may be expensive/busy) |
+| Acquiring Editor | Great fit | Same as commissioning editor (US term) |
+
+**Skip these titles:** Copy Editor (sentence-level, you've done this), Proofreader (final typeset typos), Executive Editor (management), Production Editor (printing/layout), Managing Editor (workflow/scheduling).
+
 **Due diligence:**
 - Verify they've edited literary fiction (not just corporate/academic English)
 - Ask for a sample edit of 2–3 pages before committing
