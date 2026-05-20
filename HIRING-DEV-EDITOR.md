@@ -81,10 +81,17 @@ Guide for cross-checking the AI developmental review of *The Woman in My Phone* 
 ## Search Playbook (step by step)
 
 1. **Reedsy first** — find 3–5 India/South Africa-based editors, request quotes
-2. **LinkedIn** — message 3–5 former Penguin India / HarperCollins India editors
+2. **LinkedIn** — message 3–5 former AND current Penguin India / HarperCollins India editors
 3. **Upwork job post** — "Developmental Edit — 64K Literary Fiction Novel," budget $800–$1,500, fixed-price
 4. **PEG South Africa** — browse directory, email directly
 5. **Ask for a sample edit** (2,000–3,000 words) before committing to anyone
+
+**Note on current vs. former editors:**
+- Don't limit yourself to former editors. Current editors at Indian publishers also freelance on the side.
+- Current editors at smaller publishers (Speaking Tiger, Aleph, Juggernaut) are often open to side projects since salaries are lower.
+- Editorial consultancies like The Book Bakers (India) have current working editors on staff.
+- On LinkedIn, search both "editor Penguin India" AND "former editor Penguin India" — different pools.
+- Non-compete clauses are rare in Indian publishing, so most current editors can freelance.
 
 ---
 
