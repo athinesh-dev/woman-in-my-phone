@@ -35,6 +35,70 @@ Guide for cross-checking the AI developmental review of *The Woman in My Phone* 
 
 ---
 
+## Where to Find Overseas Editors (detailed)
+
+### India ($600–$1,500 for 64K words)
+
+| Platform | How to search | Notes |
+|----------|---------------|-------|
+| **Reedsy** | Filter by developmental editing + literary fiction; check profiles for Indian publisher backgrounds | Pre-vetted, higher quality floor |
+| **Upwork** | Search "developmental editor literary fiction India," filter Job Success 90%+ | Post a fixed-price job ($800–$1,500) — expect 20+ applicants in 48 hours |
+| **LinkedIn** | Search "former editor Penguin India" or "ex-editor HarperCollins India freelance" | Former commissioning editors often freelance at ₹50K–₹1.5L/project |
+| **Facebook groups** | "Editors and Proofreaders India," "Publishing Jobs India" | Post your requirement; active community |
+
+### Philippines ($400–$1,200 for 64K words)
+
+| Platform | How to search | Notes |
+|----------|---------------|-------|
+| **Upwork** | "developmental editor fiction Philippines," filter English: Native/Bilingual | Look for MFA/MA from UP Diliman, Ateneo, De La Salle |
+| **Fiverr** | "developmental editing literary fiction," message sellers to confirm background | Level 2 or Top Rated sellers only |
+| **Philippine PEN** | https://penphilippines.org | Literary community; referrals available |
+
+### South Africa ($800–$1,900 for 64K words)
+
+| Platform | How to search | Notes |
+|----------|---------------|-------|
+| **Professional Editors' Guild (PEG)** | https://www.editors.org.za — "Find an Editor" → Developmental/Structural → Fiction | PEG accreditation = quality signal |
+| **Reedsy** | Search profiles mentioning South Africa | Strong English literary tradition |
+| **LinkedIn** | "freelance editor" + South Africa + "literary fiction" | Look for Jonathan Ball, Umuzi, Kwela alumni |
+
+### Nigeria ($400–$1,000 for 64K words)
+
+| Platform | How to search | Notes |
+|----------|---------------|-------|
+| **Upwork** | "developmental editor Nigeria literary fiction" | Look for Cassava Republic, Farafina, Masobe experience |
+| **Writivism** | https://writivism.com | East/West African literary community |
+
+### Diaspora editorial communities
+
+- **Editors of Color Database** — https://editorsofcolor.com
+- **Asian American Writers Workshop** — https://aaww.org (referrals)
+- **Jhalak Prize community (UK)** — editors of colour network
+- **Diaspora Dialogues (Canada)** — https://diasporadialogues.com
+
+---
+
+## Search Playbook (step by step)
+
+1. **Reedsy first** — find 3–5 India/South Africa-based editors, request quotes
+2. **LinkedIn** — message 3–5 former Penguin India / HarperCollins India editors
+3. **Upwork job post** — "Developmental Edit — 64K Literary Fiction Novel," budget $800–$1,500, fixed-price
+4. **PEG South Africa** — browse directory, email directly
+5. **Ask for a sample edit** (2,000–3,000 words) before committing to anyone
+
+---
+
+## Realistic Budget Summary
+
+| Tier | Rate | What you get |
+|------|------|--------------|
+| Floor | $500–$800 | Serviceable, less experienced editor |
+| **Sweet spot** | **$1,000–$1,500** | **Former Big 5 (India/SA) commissioning editor** |
+| Ceiling | $1,500–$2,000 | Senior editor, premium service |
+| US/UK rate | $1,900–$3,400 | For comparison |
+
+---
+
 ## Indian Publishers (Direct Submission — No Agent Required)
 
 If the US agent route stalls, Indian publishers accept unagented manuscripts and have shorter timelines to publication.
